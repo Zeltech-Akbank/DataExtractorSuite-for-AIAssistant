@@ -1,0 +1,26 @@
+- Adıyaman, Merkez, Adıyaman Eğitim ve Araştırma Hastanesi Poliklinik Girişi
+- Kahramanmaraş, Merkez, Necip Fazıl Şehir Hastanesi Kadın Doğum ve Çocuk Hastalıkları Ek Hizmet Binası
+- Kahramanmaraş, Pazarcık, Pazarcık Devlet Hastanesi Bahçesi
+- Şanlıurfa, Merkez, Şanlıurfa Müzesi Otoparkı
+- Adıyaman, Merkez, 1 No'lu Sağlık Ocağı yanı
+- Hatay, Merkez, İl Sağlık Müdürlüğü Yanı
+- Hatay, Defne, Defne Kaymakamlık bahçesi
+- Adıyaman, Gölbaşı, Gölbaşı Devlet Hastanesi
+- Hatay, Defne, Çadırkent, Muammer Aksoy Caddesi
+- Hatay, İskenderun, İskenderun Teknik Üniversitesi Merkez Kampüs Bahçesi 
+- Adıyaman, Besni, Besni Devlet Hastanesi
+- Adıyaman, Merkez, Eğriçayır Parkı Atletizm Pisti
+- Şanlıurfa, Merkez, Karaköprü Fuar Merkezi Bahçesi
+- Hatay, Kırıkhan, Kırıkhan Devlet Hastanesi Yanı
+- Malatya, Merkez, Battalgazi Devlet Hastanesi bahçesi
+- Malatya, Merkez, Malatya Eğitim ve Araştırma Hastanesi bahçesi
+- Kahramanmaraş, Merkez, Necip Fazıl Şehir Hastanesi Yörük Selim Ek Binası
+- Kahramanmaraş, Pazarcık, Pazarcık Belediyesi Yanı
+- Hatay, Defne, Defne Kaymakamlık Bahçesi
+- Malatya, Doğanşehir, Yeni Devlet Hastanesi Karşısı
+- Kahramanmaraş, Afşin, Pınarbaşı, Afşin Bey Caddesi
+- Malatya, Merkez, Turgut Özal Tıp Merkezi Hastanesi bahçesi
+- Kahramanmaraş, Türkoğlu, Türkoğlu Millet Meydanı
+- Gaziantep, Islahiye, İslahiye Devlet Hastanesi Bahçesi
+- Gaziantep, Nurdağı, Nurdağı Stadyumu
+- Kahramanmaraş, Elbistan, Elbistan Devlet Hastanesi Karşısı

@@ -1,0 +1,345 @@
+- Adana, Seyhan, M1 AVM-CarrefourSA, Konum: https://www.google.com/maps/place/M1+Adana+Al%C4%B1%C5%9Fveri%C5%9F+Merkezi/@37.0173899,35.2452037,15z/data=!4m5!3m4!1s0x0:0xa1f497c877d4f679!8m2!3d37.0173899!4d35.2452037?coh=164777&entry=tt, Kaynak: https://www.instagram.com/carrefoursa/
+- Adana, Çukurova, Kasrı Kervan Kebap, Konum: https://www.google.com/maps/place/Kasr%C4%B1+Kervan+Kebap/@37.039578,35.313246,17z/data=!3m1!4b1!4m5!3m4!1s0x15288feb96393723:0x41b9deaeb3cc817a!8m2!3d37.039578!4d35.31544?coh=164777&entry=tt, Kaynak: https://www.instagram.com/reel/ConIlzrIcsl/?igshid=NTdlMDg3MTY=
+- Adana, Çukurova, Doğal Yeşil Fırın Pasta, Konum: https://www.google.com/maps/place/Do%C4%9Fal+Ye%C5%9Fil+F%C4%B1r%C4%B1n+Pasta+G%C3%BCrselpa%C5%9Fa/@37.0256315,35.2582233,17z/data=!3m1!4b1!4m5!3m4!1s0x8a830cf147bac01d:0xb35ed58157763654!8m2!3d37.0256272!4d35.260412?coh=164777&entry=tt, Kaynak: https://www.instagram.com/p/CoUtsuRI0bL/?hl=tr
+- Adana, Çukurova, Piton Döner, Konum: https://www.google.com/maps/place/Piton+D%C3%B6ner+Turgut+%C3%96zal/@37.0436834,35.2763153,13z/data=!4m7!3m6!1s0x15288fcaa7971749:0x5bd1cca3c20d4894!8m2!3d37.0410527!4d35.3144008!15sChNwaXRvbiBkw7ZuZXIgY2V5aGFuWhUiE3BpdG9uIGTDtm5lciBjZXloYW6SAQpyZXN0YXVyYW504AEA!16s%2Fg%2F11t7vrf60l?coh=164777&entry=tt, Kaynak: https://instagram.com/pitondoner?igshid=NTdlMDg3MTY=
+- Hatay, Defne, Akdeniz Mahallesi Aşevi, Konum: https://www.google.com/maps/place/Akdeniz,+31160+Defne%2FHatay/@36.1917479,36.1487995,16z/data=!3m1!4b1!4m6!3m5!1s0x1525c3bc27d23777:0x47728db1086ceafc!8m2!3d36.190932!4d36.1484303!16s%2Fg%2F113fz6srz?sa=X&ved=2ahUKEwiEg7L8po79AhUEVPEDHcOUDOkQ8gF6BAgNEAI&coh=164777&entry=tt, Kaynak: https://twitter.com/hataybsb/status/1624354423563513857?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Kahramanmaraş, Dulkadiroğlu, Gökkuşağı Anaokulu, Konum: https://www.google.com/maps/place/G%C3%B6kku%C5%9Fa%C4%9F%C4%B1+anaokulu/@37.5325095,36.9903577,15z/data=!4m6!3m5!1s0x152de70919b0613f:0xcb8cdb1bb0fc6398!8m2!3d37.5325095!4d36.9903577!16s%2Fg%2F11h3l0bcnw?coh=164777&entry=tt, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Dulkadiroğlu, Yahya Kemal Mah. Çadır Alanı , Konum: https://www.google.com/maps/place/Yahya+Kemal+Mahallesi+Muhtarl%C4%B1%C4%9F%C4%B1/@37.5807439,36.9579227,17z/data=!3m1!4b1!4m5!3m4!1s0x152de78d2623eb77:0xcdabd6c13aa20987!8m2!3d37.580744!4d36.962402?coh=164777&entry=tt, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Elbistan, Tepebaşı İlkokulu, Konum: https://www.google.com/maps/place/Tepeba%C5%9F%C4%B1+%C4%B0lkokulu/@38.221582,37.1963892,17z/data=!3m1!4b1!4m5!3m4!1s0x152d673ae184cf5b:0xc051c805bb5fc0c8!8m2!3d38.221582!4d37.1985779?coh=164777&entry=tt, Kaynak: https://www.instagram.com/p/Coj_a_ZriVW/
+- Kahramanmaraş, Dulkadiroğlu, Markas Hastanesi Yanı, Konum: https://www.google.com/maps/place/%C3%96ZEL+MARKAS%C4%B0+HASTANES%C4%B0/@37.5701774,36.9546439,17z/data=!3m1!4b1!4m6!3m5!1s0x152de786eb8c813f:0xae5e14dbc0c189d6!8m2!3d37.5701775!4d36.9591286!16s%2Fg%2F11c4bmwxwf?coh=164777&entry=tt, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Onikişubat, Zekeriya Tanrıverdi Camii Yurt Mutfağı, Konum: https://www.google.com/maps/place/Zekeriya+Tanr%C4%B1verdi+Camii/@37.5893093,36.8822087,15z/data=!4m5!3m4!1s0x0:0x171f6aa54cadfb56!8m2!3d37.5893093!4d36.8822087?sa=X&ved=2ahUKEwj6246Vu5X9AhVROewKHXQVCdsQ_BJ6BAhOEAg&coh=164777&entry=tt, Kaynak: https://www.instagram.com/p/Coj_a_ZriVW/
+- Kahramanmaraş, Dulkadiroğlu, Müftülük Karşısı , Konum: https://www.google.com/maps/place/Menderes,+M%C3%BCft%C3%BCl%C3%BCk,+46060+Dulkadiro%C4%9Flu%2FKahramanmara%C5%9F/@37.57503,36.9329883,19.6z/data=!4m5!3m4!1s0x152ddd753aafd913:0xc83c1d0caf0ea157!8m2!3d37.5751467!4d36.9333234?coh=164777&entry=tt, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Malatya, Yeşilyurt, Şeyh Bayram Muhtarlığı, Konum: https://www.google.com/maps/place/%C5%9Eeyh+Bayram,+Ye%C5%9Filyurt%2FMalatya/@38.3359506,38.27529,15z/data=!3m1!4b1!4m7!3m6!1s0x407631480a0d39f3:0xa6155dbca86367f6!8m2!3d38.3378209!4d38.2904081!15sCkjFnmV5aCBCYXlyYW0gTWFoLiDFnmVoaXQgS2FsZW5kZXIgWcSxbGTEsXLEsW0gU29rLiA3IFllxZ9pbHl1cnQsIE1hbGF0eWGSARRhZG1pbmlzdHJhdGl2ZV9hcmVhNOABAA!16s%2Fg%2F1v9gsyrt?coh=164777&entry=tt, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Malatya, Merkez, Valilik Önü, Konum: https://www.google.com/maps/place/Malatya+Valili%C4%9Fi/@38.355839,38.3340651,20.65z/data=!4m6!3m5!1s0x407636ec69a712a5:0x6fc056690a399a8c!8m2!3d38.3558704!4d38.3343896!16s%2Fg%2F1hc1dgn56?coh=164777&entry=tt, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Adana, Çukurova, BA Avrupa Döner, Konum: https://goo.gl/maps/n5aWbiXeERC6CYSY6, Kaynak: https://www.instagram.com/avrupadoner.ba/
+- Adana, Ceyhan,  Ceyhan Cemevi 
+, Konum: https://goo.gl/maps/iBcNX5eoSNx4dXmB7, Kaynak: https://twitter.com/HaciBektasVakfi/status/1623055915984502790
+- Adana, Seyhan, Cihangir Dürümmatik, Konum: https://goo.gl/maps/eaZgXpcYyAAxALKs7, Kaynak: https://www.instagram.com/cihangir/
+- Adana, Seyhan, Tobacco Cafe, Konum: https://goo.gl/maps/fD8GUWHy34Zkq9v47, Kaynak: https://www.instagram.com/tobaccoadana/
+- Adana, Sarıçam, Şehit Ertan Tokuş İlkokulu, Konum: https://goo.gl/maps/hqGQZWmnWhcnQF7H6, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Çukurova, Tarihi Atmaca Mangal Keyfi, Konum: https://goo.gl/maps/UmNrURCMwobvp7JbA, Kaynak: https://www.instagram.com/tarihiatmacamangalkeyfi/
+- Adana, Çukurova, Çukurova Atletizm Pisti, Konum: https://goo.gl/maps/HxFCPHv3V5Yv2eKK7, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Çukurova, Zeki Usta Kebap , Konum: https://goo.gl/maps/6M71W6iNnpxoSpd98, Kaynak: https://www.instagram.com/p/CoaGDiYqrML/
+- Adana, Sarıçam, Kut'ül Amare Yurdu, Konum: https://goo.gl/maps/oxheyA8vcsAqLCyw7, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Yüreğir, Yüreğir Gençlik Merkezi, Konum: https://goo.gl/maps/YFHFFrnUpvjubRs56, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Adana, Yüreğir, Serinevler Spor Salonu, Konum: https://goo.gl/maps/BJGFhEB1rG2NqpHp6, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Sarıçam, Çukurova Yurdu, Konum: https://goo.gl/maps/PenAbxHpCQg3Ef3b8, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Çukurova, Adana Gençlik Merkezi, Konum: https://goo.gl/maps/YMLi7FvQzUqeuncXA, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Sarıçam, Yeni Adana Stadyumu, Konum: https://goo.gl/maps/vjb2byKQqnHAjHmK8, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Seyhan, Cihangir Kebap Büryan, Konum: https://goo.gl/maps/y7wHEWYiEeUvEcmPA, Kaynak: https://www.instagram.com/cihangir/
+
+- Adana, Ceyhan, Ceyhan Spor Salonu, Konum: https://goo.gl/maps/rbuWNPs4uVi7RhL56, Kaynak: https://twitter.com/kasapoglu/status/1623634095111655426
+- Adana, Seyhan, Menderes Spor Salonu, Konum: https://goo.gl/maps/fSeypaUke2Kw1GUy5, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Sarıçam, Toroslar Yurdu, Konum: https://goo.gl/maps/jtQhKmjz4RpukzCA6, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Seyhan, Atatürk Yüzme Havuzu, Konum: https://goo.gl/maps/wXM4XATcvveU5knt7, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Ceyhan, Ceyhan Mehmet Orhun Yaylacı Anadolu Lisesi, Konum: https://goo.gl/maps/cJiDLHi59Afkdyqm9, Kaynak: https://moyal.meb.k12.tr/icerikler/06022023-depriminde-okulumuzun-kapilarini-vatandaslarimiza-actik_13699418.html
+- Adana, Yüreğir, İsmet Atlı Güreş Eğitim Merkezi, Konum: https://goo.gl/maps/XhvbyKb4NRmKrh5h7, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Seyhan, Nihat Geven Spor Salonu, Konum: https://goo.gl/maps/CLzpXmfR59idWvZq9, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Sarıçam, Sevgi Anaokulu, Konum: https://goo.gl/maps/MMFMhxnoi59NmpFL9, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Çukurova, Fit Atölyem, Konum: https://goo.gl/maps/14n6zY148SEZpCqV7, Kaynak: https://www.instagram.com/fitatolyem/
+- Adana, Kozan, Kozan Yurdu, Konum: https://goo.gl/maps/2KRPA2aabfYcoHpk8, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Sarıçam, Hüseyin Avni Coş İlkokulu, Konum: https://goo.gl/maps/fRdek9uvm33bXeBfA, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Çukurova, Reis Cafe Restorant, Konum: https://goo.gl/maps/YbQkxhyctcSohitP6, Kaynak: https://www.instagram.com/reisrestaurant_adana/
+- Adana, Sarıçam, Adana Alparslan Türkeş Bilim ve Teknoloji Üniversitesi, Konum: https://goo.gl/maps/8pPnNSHYQurmTbWM6, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Çukurova, Keyf-i Asya Kebap, Konum: https://goo.gl/maps/HxP2qRUER1qVijRx5, Kaynak: https://www.instagram.com/stories/keyfasyakebap/3036726513643039958/
+- Adıyaman, Merkez, Fatih 22126. Sokak Mesire Alanı, Konum: https://goo.gl/maps/qYr9au1dUaJaK5Dv6, Kaynak: https://www.instagram.com/p/CoeMyYCo5lJ/
+- Adana, Sarıçam, Asım Savaş Spor Salonu, Konum: https://goo.gl/maps/ZH6bRDc8Fq7GA2TLA, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adana, Çukurova, Cihangir Kebap Kaburga, Konum: https://goo.gl/maps/YnYa6L6v6oPHqWyP6, Kaynak: https://www.instagram.com/cihangir/
+
+- Adana, Sarıçam, Abdullah Öngen Anaokulu, Konum: https://goo.gl/maps/TqiadxnhTi4QJ2Pa7, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Yüreğir, Adana Rotary Kulübü Anaokulu, Konum: https://goo.gl/maps/CBCA43B2ARQqjUZu8, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Sarıçam, Türk Tekstil Vakfı Mesleki ve Teknik Anadolu Lisesi, Konum: https://goo.gl/maps/t7sVN8BZUvdV6tjw6, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Sarıçam, Hacı Özcan Sinağ Ortaokulu, Konum: https://goo.gl/maps/e39DRT9X1V9JCarH7, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Sarıçam, Orhangazi İmam Hatip Ortaokulu, Konum: https://goo.gl/maps/1iL3y7Qov3teefXp7, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adıyaman, Merkez, Valilik Önü Merkez, Konum: https://goo.gl/maps/e96yBZqdneQN8Qnj8, Kaynak: https://twitter.com/Kizilay/status/1626203220077867008?s=20&t=-eilox-Jt4jf6AH5qWUXWQ
+- Adıyaman, Besni, Besni İlçe Spor Salonu, Konum: https://goo.gl/maps/aE74bTiRxgBvheou9, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Adana, Sarıçam, Remzi Oğuz Arık İlkokulu, Konum: https://goo.gl/maps/Fs3DsdrhJuuZcTs59, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Sarıçam, 5 Ocak Yurdu, Konum: https://goo.gl/maps/4vfF58uZxYhpPzwC7, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Seyhan, TOHM Binası, Konum: https://goo.gl/maps/SactUMaJqeUoHffY8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Adana, Sarıçam, Kozanoğlu Lions Anaokulu, Konum: https://goo.gl/maps/K2k24hRVgaya4GFx6, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Sarıçam, Sarıçam Anadolu İmam Hatip Lisesi, Konum: https://goo.gl/maps/2BRaGWoGQJUPUWLp8, Kaynak: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adıyaman, Kahta, Atatürk Spor Salonu, Konum: https://goo.gl/maps/YiScfkt5E7HKTMw66, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Diyarbakır, Kayapınar, Diyarbakır Stadyumu, Konum: https://goo.gl/maps/KGfgSWxTaBKLBZ2H8, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adıyaman, Kahta, Kahta İlçe Stadı, Konum: https://goo.gl/maps/Nk5GF8GmSuq3UCnE8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Diyarbakır, Bağlar, Süleyman Bin Halid Kız Yurdu Müdürlüğü, Konum: https://goo.gl/maps/1gowMBGTdj8Y41oz5, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Diyarbakır, Kayapınar, Espresso Lab Diyarbakır Stadyolu, Konum: https://goo.gl/maps/YiiVtmGAQp5zSzkx5, Kaynak: https://twitter.com/espressolabtr/status/1623644873839484928
+- Diyarbakır, Bağlar, Halid Bin Velid Erkek Yurdu Müdürlüğü, Konum: https://goo.gl/maps/e5V959QTNJiWcHHN9, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adıyaman, Merkez, Adıyaman Atatürk Stadı, Konum: https://goo.gl/maps/j6G9VfUKXDqyz8S9A, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Diyarbakır, Ergani, Ergani Spor Salonu, Konum: https://goo.gl/maps/gLWVPY2jUZRET2v76, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Diyarbakır, Kayapınar, Diyarbakır Büyükşehir Belediyesi Talaytepe Spor Kompleksi
+, Konum: https://goo.gl/maps/FXmAazY1JwgJ9QRw9, Kaynak: https://twitter.com/diyarbakirbld/status/16224372240453140488
+- Diyarbakır, Yenişehir, Yenişehir Seyrantepe Spor Salonu, Konum: https://goo.gl/maps/ZBRbDneqyR7TpN9T9, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Diyarbakır, Silvan, Silvan Spor Salonu, Konum: https://goo.gl/maps/HaFhYHW5pnpgLAu16, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adıyaman, Merkez, Yenimahalle Spor Salonu, Konum: https://goo.gl/maps/pvP7w6QmkmSoJDZQ8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Adıyaman, Merkez, Birsen Esensoy İlkokulu, Konum: https://goo.gl/maps/qffntdecB7XYNZB39, Kaynak: https://twitter.com/RamazanBingol/status/1624036043367366656
+- Diyarbakır, Lice, Lice Spor Salonu, Konum: https://goo.gl/maps/vJzWo5ohRMyu1RdL7, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Diyarbakır, Sur, Sur Gençlik Merkezi, Konum: https://goo.gl/maps/g3oiSE3YyR4R7MpM7, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Adıyaman, Merkez, Çok Amaçlı Spor Salonu, Konum: https://goo.gl/maps/ym3Wf7oaRPT7fkh2A, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Adıyaman, Kahta, Gazi Spor Salonu, Konum: https://goo.gl/maps/kP2mFVM5uuWXgZSu5, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Diyarbakır, Bağlar, Bağlar Gençlik Merkezi, Konum: https://goo.gl/maps/6p9EyuTu8B82HrXX9, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Diyarbakır, Sur, Selahattin Eyyubi Kız Yurdu Müdürlüğü, Konum: https://goo.gl/maps/afawNAfivMA9qH2XA, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Diyarbakır, Çermik, Çermik Spor Salonu, Konum: https://goo.gl/maps/Js8PR4SErj2Q7kpq9, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Diyarbakır, Bismil, Zal Petrol ve Düğün Sarayı, Konum: https://goo.gl/maps/pcde74aeButCRDvC8, Kaynak: https://www.instagram.com/p/CoXzrEFOapW/?igshid=NTdlMDg3MTY=
+- Gaziantep, Şehitkamil, Kayaönü Sosyal Tesisleri, Konum: https://goo.gl/maps/7BWYVW4BVDpTryDd6, Kaynak: https://twitter.com/GaziantepBeld/status/1622447326588555264
+- Diyarbakır, Merkez, DİŞTİ Şehirlerarası Otobüs Terminali, Konum: https://goo.gl/maps/MXB7tk81GTN5T8pZ7, Kaynak: https://twitter.com/diyarbakirbld/status/1623586576956530690
+- Diyarbakır, Kayapınar, Diyarbakır Büyükşehir Belediyesi Tenis Kortu, Konum: https://goo.gl/maps/WRq2YBksnoCnAoRD6, Kaynak: https://twitter.com/diyarbakirbld/status/1622437224045314048
+- Diyarbakır, Yenişehir, Hacıbaba Pastaneleri, Konum: https://goo.gl/maps/NDwBHSrLLmFjm6V38, Kaynak: https://twitter.com/Omerelaldi21/status/1622582892470628353
+- Gaziantep, Şahinbey, Akkent Özel Öğrenci Yurdu, Konum: https://goo.gl/maps/4rRvwWsu49yt7Cxr8, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Gaziantep, Şehitkamil, Karşıyaka Sosyal Tesisleri, Konum: https://goo.gl/maps/we8dZQerG4vKMDtDA, Kaynak: https://twitter.com/GaziantepBeld/status/1622447326588555264
+- Gaziantep, Nurdağı, Nurdağı Kaymakamlığı Mobil Mutfak, Konum: https://goo.gl/maps/wvKkFs5r8aAqd2LHA, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Gaziantep, İslahiye, İslahiye Kaymakamlık Binası, Konum: https://goo.gl/maps/bsP32WcjcdvEq4Q37, Kaynak: https://mobile.twitter.com/BurgerKingTR/status/1624009477862162433
+- Gaziantep, İslahiye, İslahiye Tuvturk Istasyonu Onu, Konum: https://goo.gl/maps/vNvhy7Wnf5GXyLer9, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Gaziantep, Şehitkamil, Osmangazi Öğrenci Yurdu, Konum: https://goo.gl/maps/FemmKxhK5aP4EGTc7, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Gaziantep, Nizip, Nizip Gençlik Merkezi, Konum: https://goo.gl/maps/C8GiyQ1rzKt6SZnK9, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Hatay, Antakya, IBB Mobil Mutfak, Odabaşı Mahallesi Atatürk Caddesi, Konum: https://goo.gl/maps/kMQ5ZA6bZs45BfC47, Kaynak: https://twitter.com/ekrem_imamoglu/status/1623020341021839370
+- Gaziantep, Şehitkamil, Fatih Sultan Mehmet 
+Eğitim Akademisi, Konum: https://goo.gl/maps/bSUa9RuQc42T8RMXA, Kaynak: https://twitter.com/gaziantepbeld/status/1624452854801989632?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Hatay, İskenderun, St. George Kilisesi Avlusu, Konum: https://goo.gl/maps/PBeTJtoiWHTSamx89, Kaynak: https://twitter.com/wannartcom/status/1623256325038739456
+- Gaziantep, Şahinbey, Şahinbey Spor Salonu, Konum: https://goo.gl/maps/Kt32TmKmnoKzSZDVA, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Gaziantep, Şehitkamil, Huqqabaz Iconova, Konum: https://goo.gl/maps/K7BUjdBDfgNzZmkJ8, Kaynak: https://www.instagram.com/huqqabaz/
+- Gaziantep, Şahinbey, Özel Burç İrfaniye Öğrenci Yurdu, Konum: https://goo.gl/maps/n5KNVnUhyWQdU62N7, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Gaziantep, Şehitkamil, Aktoprak Futbol Sahası, Konum: https://goo.gl/maps/jqpUBzHwQ835YajVA, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Gaziantep, Şehitkamil, MSM, Konum: https://goo.gl/maps/KcYVpaAHzWKLgKer8, Kaynak: https://twitter.com/gaziantepbeld/status/1624452854801989632?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Gaziantep, Şehitkamil, Gazikent Spor Salonu, Konum: https://goo.gl/maps/SRP9xbhKqNzVTf8J8, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Gaziantep, Şehitkamil, Șıh Mehmet Sıdıka Kökoğlu Eğitim ve Sanat Merkezi, Konum: https://goo.gl/maps/nhoph5h44MmLEVCz7, Kaynak: https://twitter.com/gaziantepbeld/status/1624452854801989632?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Gaziantep, İslahiye, İslahiye Atatürk Stadı, Konum: https://goo.gl/maps/xBasqCC2qawWDxAK9, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Gaziantep, Şahinbey, Prof. Dr. Aziz Sancar Eğitim ve Sanat Merkezi, Konum: https://goo.gl/maps/DU4F3arJNkRUYkat6, Kaynak: https://twitter.com/gaziantepbeld/status/1624452854801989632?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Gaziantep, Şahinbey, Gazikent Kurs Merkezi, Konum: https://goo.gl/maps/yZpJUBDjQpFyQRQY8, Kaynak: https://twitter.com/gaziantepbeld/status/1624452854801989632?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Gaziantep, Oğuzeli, Oğuzeli Spor Salonu, Konum: https://goo.gl/maps/8igNvYGKLQ72H7QA9, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Gaziantep, Şehitkamil, Gonullu Hizmet Vakfi Aysel Ogucu Ana Okulu, Konum: https://goo.gl/maps/C4V57SWjJqGXe7iN7, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Gaziantep, Şehitkamil, Güvenevler Halil 
+Karaduman Sanat Merkezi, Konum: https://goo.gl/maps/opVPauBF5yJcL34v8, Kaynak: https://twitter.com/gaziantepbeld/status/1624452854801989632?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Gaziantep, Şehitkamil, Olimpik Yüzme Havuzu, Konum: https://goo.gl/maps/jJwCiBpetXABuqHa8, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Gaziantep, İslahiye, İslahiye Gençlik Merkezi, Konum: https://goo.gl/maps/L5kSAtCxfKTYEMPR8, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Gaziantep, Şahinbey, Kalyoncu Spor Salonu, Konum: https://goo.gl/maps/gjXALsAtrnjbtNVq7, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Gaziantep, Yavuzeli, Yavuzeli Spor Salonu, Konum: https://goo.gl/maps/C8GiyQ1rzKt6SZnK9, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Gaziantep, İslahiye, İslahiye Meydan, Konum: https://goo.gl/maps/wVijLaYBvpvP9i6AA, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Diyarbakır, Sur, Dicle Üniversitesi Yemekhanesi, Konum: https://goo.gl/maps/VUp8eAwxcdgmBZau6, Kaynak: https://twitter.com/dicleuni1973/status/1625066107177508865
+- Gaziantep, Nizip, Nizip Stadı, Konum: https://goo.gl/maps/kQZRtLJuf6YxGNYK7, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Gaziantep, Araban, Araban Spor Salonu, Konum: https://goo.gl/maps/HzPzzWEixiAYFXF3A, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Hatay, İskenderun, İskenderun Gençlik Merkezi, Konum: https://goo.gl/maps/pUbUT4da6E2DiEiN7, Kaynak: https://twitter.com/hilmiturkmen34/status/1622972543056457729
+- Gaziantep, Şahinbey, Sahinbey Belediyesi Selcuklu Genclik Merkezi, Konum: https://goo.gl/maps/TFvutsg4gdK6jf6h7, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Gaziantep, Şehitkamil, Onat Kutlar Mahallesi Uzay Çatı Kapalı Pazar Yeri, Konum: https://goo.gl/maps/JPMR1Nk3BJC6MGnq5, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Hatay, İskenderun, Adliyesi yanı İş Bankası Karşısı, Konum: https://goo.gl/maps/V1mFgD3QyhRFQ4S7A, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/4
+- Gaziantep, Şehitkamil, Çok Amaçlı Spor Salonu, Konum: https://goo.gl/maps/jNSaSVw59TDFxtjt8, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Gaziantep, Şahinbey, Bağlarbaşı Öğrenci Yurdu, Konum: https://goo.gl/maps/9tTcjCMJSK9uSfGq6, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Hatay, İskenderun, Hatay İl Jandarma Komutanlığı, Konum: https://goo.gl/maps/g5FSW8qPna3xQLRf7, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Hatay, Antakya, Merkez Cimnastik Spor Salonu, Konum: https://goo.gl/maps/VbDXh6iBCwxT5fxH9, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/2
+- Hatay, Antakya, Hatay Eğitim ve Araştırma Hastanesi Bahçesi, Konum: https://goo.gl/maps/3NW8u1wQaEwSuXg17, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/1
+- Hatay, Antakya, İskenderun Tic. Ve Sanayi Odası Anadolu Lisesi, Konum: https://goo.gl/maps/3YwWwJ1mfXdKpqhD6, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Hatay, Antakya, Nuri Kuzeytepe Restaurant- Kuzeytepe Mah, Atatürk Cd NO:19/A , Konum: https://goo.gl/maps/HbkpKFNw49t37sC27, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/1
+- Hatay, Antakya, Hatay Expo, Konum: https://goo.gl/maps/Wgrw3QxzDzZdDtNW7, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/1
+- Hatay, Antakya, Antakya Macrocenter arkası, Konum: https://goo.gl/maps/5r3egUoU7BmG1o7L7, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/1
+- Hatay, İskenderun, İskenderun Teknik Üniversitesi Bahçesi, Konum: https://goo.gl/maps/wcXMPAv4U5uUQegw6, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/4
+- Hatay, Antakya, Burdur Mehmet Akif Ersoy Üniversitesi tarafından Hatay'da kurulan yemek çadırı- E-5 Karayolu Cd. 31060 Hatay Merkez, Konum: https://goo.gl/maps/PZDqAztmNF7KNi1u6, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/1
+- Hatay, Merkez, Aksaray Erkek Öğrenci Yurdu, Konum: https://goo.gl/maps/thMVxiwEwjEY9JG38, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Hatay, Arsuz, Beyaz Saray Restaurant, Konum: https://goo.gl/maps/U4iRSJRgpCgoS5c2A, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/3
+- Hatay, Defne, Artes Otel, Konum: https://goo.gl/maps/zkcDt3YNQaVNCDFk9, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/33
+- Hatay, İskenderun, Hürriyet İlkokulu, Mustafa Kemal Mahallesi 588. Sok. No:1, Konum: https://goo.gl/maps/zkxAHj8d4NQMqukd9, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/2
+- Hatay, Antakya, Maksim Parkı, Konum: https://goo.gl/maps/HVEz5vcKPQz3LmC69, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/1
+- Kahramanmaraş, Onikişubat, Ayşe Gümüşer İlköğretim Okulu, Konum: https://goo.gl/maps/KEcthoB65Madz5Cu6, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Hatay, İskenderun, Denizciler Erkek Öğrenci Yurdu, Konum: https://goo.gl/maps/coYxkhjXGQUU88et7, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Hatay, İskenderun, Gürsel Mahallesi Mevlana İlkokulu İçi, Konum: https://goo.gl/maps/aqdtCjKUPASFVurP7, Kaynak: https://www.instagram.com/p/Coo_1n8N1Ej/?igshid=OTRmMjhlYjM=
+- Hatay, Antakya, 600 Konutlar, Konum: https://goo.gl/maps/BbZWF3b1yketqL9G7, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Hatay, Defne, Özel Doğuş Okulları Sümerler Kampüsü, Konum: https://goo.gl/maps/RVSidN8otxboaBVG7, Kaynak: https://www.instagram.com/beca.istanbul/
+- Hatay, İskenderun, Maydanoz Kafe Önü, Konum: https://goo.gl/maps/Yn2hy5As4pYBo4FTA, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Hatay, Antakya, TOKİ Spor Salonu, Konum: https://goo.gl/maps/uoRMvU6xXTY4rZf1A, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/2
+- Kahramanmaraş, Elbistan, Elbistan Gençlik Merkezi, Konum: https://goo.gl/maps/XQ8f4WZgLnJ56yU76, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Dulkadiroğlu, Sütçüimam Mahallesi , Konum: https://goo.gl/maps/8gMjEs9ix2QRhcbm9, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Hatay, Arsuz, Bilfen Anaokulu, Konum: https://goo.gl/maps/imiNxZjGpNreoAxV8, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/4
+- Kahramanmaraş, Dulkadiroğlu, Kazanlıpınar Mahallesi, Konum: https://goo.gl/maps/zFgpiQHkSL9Mu7kt5, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Hatay, Hassa, Aktepe Erkek Talebe Yurdu, Konum: https://goo.gl/maps/ZhG2ctawedoPTByC6, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Hatay, Defne, Kule Restoran, Konum: https://goo.gl/maps/3HrTa3Fx7TJzusNQ8, Kaynak: https://twitter.com/hataybsb/status/1624354423563513857?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Hatay, Samandağ, Samandağ Kumluca Belediyesi Aşevi, Konum: https://goo.gl/maps/N3GZxc9ukvAf6FRj8, Kaynak: https://twitter.com/kumlucabld/status/1623997737686401024?s=20&t=uOn26euq5VU7RfOyUqaL-Q
+- Hatay, Kırıkhan, Kırıkhan Aşevi, Stadyum Yanı Tır Garajı, Konum: https://goo.gl/maps/GwMA4p1dUYWpq71b7, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/4
+- Hatay, İskenderun, EXPO İskenderun Fuar Alanı, Konum: https://goo.gl/maps/GbaqBWYZdLSdh2sS7, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/2
+- Hatay, Antakya, Cemevi, Konum: https://goo.gl/maps/JtY3hPbadfxg45Mi8, Kaynak: https://www.instagram.com/p/CoXwHcHLwXQ/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Merkez, Yaşar Pastanesi Arkası, Konum: https://goo.gl/maps/SeY43ikjPwD2Kqh48, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Hatay, Defne, Defne Belediyesi Gençlik Kültür Sanat Evi, Konum: https://goo.gl/maps/F4xGSodt7oyXa2n68, Kaynak: https://twitter.com/hataybsb/status/1624354423563513857?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Hatay, Kırıkhan, Kardelen Kız Öğrenci Yurdu, Konum: https://goo.gl/maps/7hH9qMoFxXnmTU8U6, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Kahramanmaraş, Merkez, Özel Mimar Sinan Orta Öğretim Kız Öğrenci Yurdu, Konum: https://goo.gl/maps/uamUtK2fegyy75MR6, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Kahramanmaraş, Merkez, Yörük Selim Devlet Hastanesi Ek Hizmet Binası, Konum: https://goo.gl/maps/iUZMBRQqbf5YZREv7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Türkoğlu, Türkoğlu Stadı, Konum: https://goo.gl/maps/TEXfDdWWSeLn6UKe7, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Dulkadiroğlu, Sümer Mahallesi İlkokulu, Konum: https://goo.gl/maps/JQGqAHDMhg4gQqFS7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Merkez, Doğukent Futbol Sahası, Konum: https://goo.gl/maps/tfFSK8Mc6gnX8V2B8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Yeşilyurt, Beydağı Gençlik, Konum: https://goo.gl/maps/YtqgXcZuri3iwPXv8, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Kahramanmaraş, Onikişubat, Mevlana İlkokulu, Konum: https://goo.gl/maps/bX3aUgEd4gmvH37C7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Onikişubat, Avşar Camii Yanı , Konum: https://goo.gl/maps/Gk9hjJEDjBrk5nmD7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Elbistan, Elbistan Emniyet Önü, Konum: https://goo.gl/maps/2U57WhRbhTdzCGWs8, Kaynak: https://twitter.com/Kizilay/status/1626202432060489731?s=20&t=-eilox-Jt4jf6AH5qWUXWQ
+- Hatay, Altınözü, Altınözü Gençlik Merkezi, Konum: https://goo.gl/maps/msTNVzwH9hXJrWRU7, Kaynak: https://twitter.com/HatayBSB/status/1624048548688936964/photo/4
+- Kahramanmaraş, Onikişubat, Osman Sayın Spor Salonu Önü Beşir Vakfı, Konum: https://goo.gl/maps/DGRrEeBCvqkZvkoW9, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Kahramanmaraş, Onikişubat, Ömer Faruk Sayıl İlkokulu, Konum: https://goo.gl/maps/3N2epxaZTd4vf5c16, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Hatay, Samandağ, Ahmet Yesevi Caddesi İle İnönü Caddesi Kesişimi, Konum: https://goo.gl/maps/zkd7CsycQcC2Lnat6, Kaynak: https://twitter.com/kadikoybelediye/status/1624816271152885763
+- Hatay, Defne, Defne Kaymakamlığı, Konum: https://goo.gl/maps/9afsBDEjQPW7cjL26, Kaynak: https://twitter.com/kadikoybelediye/status/1624816271152885763
+- Kahramanmaraş, Dulkadiroğlu, İzcilik Federasyonu Gaziantep Yolu 7. Km Kipaş Holding, Konum: https://goo.gl/maps/zqutmEsgF33tsjqR9, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Dulkadiroğlu, Ayaklıcaoluk Mahallesi, Konum: https://goo.gl/maps/amveKY5o4i2x8MX46, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Onikişubat, Karacaoğlan Mahallesi, Konum: https://goo.gl/maps/eJ3eG58CHRcn6Emg7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Merkez, OSB Kavaklı Modena Deposu, Konum: https://goo.gl/maps/knxiftyuLURWV7B49, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Malatya, Battalgazi, Emekli Parkı, Konum: https://goo.gl/maps/4ndRcEFXXtBTXTH78, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Kahramanmaraş, Elbistan, Elbistan Spor Salonu, Konum: https://goo.gl/maps/1FgRBUHCoxLgG6SK6, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Hatay, Antakya, Antakya İtfaiye Yanı, Konum: https://goo.gl/maps/4SZiJbKK3WdLWpYR9, Kaynak: https://www.instagram.com/p/Coo_1n8N1Ej/?igshid=OTRmMjhlYjM=
+- Kilis, Merkez, Kilis Gençlik Merkezi, Konum: https://goo.gl/maps/3jBFrux1NVwp8CYc8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Pazarcık, Pazarcık Hastane Önü, Konum: https://goo.gl/maps/r3u2uSoknoBvPBtg6, Kaynak: https://twitter.com/Kizilay/status/1626202432060489731?s=20&t=-eilox-Jt4jf6AH5qWUXWQ
+- Kahramanmaraş, Dulkadiroğlu, Özel Markasi Hastanesi, Konum: https://goo.gl/maps/5uWkz14f2NXUZ73EA, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Onikişubat, Merkez Binevler Kapalı Semt Pazarı, Konum: https://goo.gl/maps/kq4zBHv9UzwUz6SBA, Kaynak: https://www.instagram.com/carrefoursa/
+- Hatay, Belen, Fatih Mahallesi Doğa Park Düğün Salonu - Belen, Konum: https://goo.gl/maps/Cm83ntAT2Q2Vecg97, Kaynak: https://www.instagram.com/p/Coo_1n8N1Ej/?igshid=OTRmMjhlYjM=
+- Kahramanmaraş, Onikişubat, Kadın Doğum ve Çocuk Hastanesi, Konum: https://goo.gl/maps/G2irHGJb3oDq7v1m7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Malatya, Yeşilyurt, Olimpik Kapalı Yüzme Havuzu, Konum: https://goo.gl/maps/UbGgzBn2448SRqkn6, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Kahramanmaraş, Dulkadiroğlu, Aslanbey Camii Yanı, Konum: https://goo.gl/maps/s1xbstUS5fJt2MSi6, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Türkoğlu, Ferhatlar Öğrenci Yurdu, Konum: https://goo.gl/maps/K1jsMoEUQ5hNceqf7, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Malatya, Battalgazi, İlhan Akıncı Erkek Öğrenci Yurdu, Konum: https://goo.gl/maps/6TxvdyqEZh5pY1EN7, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Malatya, Yeşilyurt, Çok Amaçlı Spor Salonu, Konum: https://goo.gl/maps/Zr217iypu4z1HUWo7, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Kahramanmaraş, Dulkadiroğlu, Dulkadiroğlu Belediyesi, Konum: https://goo.gl/maps/tqCnK9rmmVSggrcS7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Dulkadiroğlu, Duraklı Mahallesi, Konum: https://goo.gl/maps/L4rnK6kwLhavUNa18, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Onikişubat, Üngüt Bahçeşehir Koleji, Konum: https://goo.gl/maps/3FcRbBVJ1dWfDkBe7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Dulkadiroğlu, Genç Osman Mahallesi Çıkışı Yol Şantiyesi Dağkar Erdem, Konum: https://goo.gl/maps/82RDyr1Kcy1BH5Mm9, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Onikişubat, Bulutoğlu Köyü, Konum: https://goo.gl/maps/XNtJYCxtA5j8RaYi6, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Onikişubat, Ticaret Borsası Önü, Konum: https://goo.gl/maps/93pCLASqcrmThanw9, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Onikişubat, Onikişubat stadyumu, Konum: https://goo.gl/maps/oShGYQPdscbfJccp7, Kaynak: https://twitter.com/Kizilay/status/1626202432060489731?s=20&t=-eilox-Jt4jf6AH5qWUXWQ
+- Kahramanmaraş, Dulkadiroğlu, Mehmet Akif Mahallesi, Konum: https://goo.gl/maps/64jbvzh8GwV2bZDTA, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Onikişubat, 15 Temmuz Şehitler İmamhatip Ortaokulu , Konum: https://goo.gl/maps/hqJZUe8Wy5B67nu18, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Dulkadiroğlu, DSi 20.Bölge Müdürlüğü, Konum: https://goo.gl/maps/EjDvomHLjW6XTbwU9, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Türkoğlu, Türkoğlu Lisesi, Konum: https://goo.gl/maps/ocf9vS9rP7MzKDou7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Onikişubat, Leyli-Zeynep MAHÇİÇEK 
+Kur'an Eğitim Merkezi, Konum: https://goo.gl/maps/Qa629NA99Vky8sUd9, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Hatay, İskenderun, İskenderun Kaymakamlık, Konum: https://goo.gl/maps/ziGpk6XmykmWmfFW9, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Malatya, Battalgazi, Çınar Sosyal Tesisi, Konum: https://goo.gl/maps/sbXmsxywSNHmQA6Y8, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Malatya, Yeşilyurt, Yeşilyurt Belediyesi Fen İşleri Müdürlüğü Deposu Önü, Konum: https://goo.gl/maps/C8tvGoPLYsSg2xB76, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Hatay, Antakya, Selim Tevfik Eskiocak Anadolu Lisesi, Konum: https://goo.gl/maps/qMT38cD29FSFkQEK7, Kaynak: https://twitter.com/hataybsb/status/1624354423563513857?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Kahramanmaraş, Elbistan, Karaelbistan Cumhuriyet İlkokulu, Konum: https://goo.gl/maps/FnhEMN9omTrwUvnK8, Kaynak: https://www.instagram.com/p/Coj_a_ZriVW/
+- Malatya, Yeşilyurt, Merkez Spor Salonu, Konum: https://goo.gl/maps/sDfEMyZ6M1UJHGme6, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Malatya, Battalgazi, Megsaş Ekmek Fabrikası, Konum: https://goo.gl/maps/xmVp8nQh746SK3m3A, Kaynak: https://mobile.twitter.com/BurgerKingTR/status/1624009477862162433
+- Kahramanmaraş, Onikişubat, Maraş Seyirtepe Konutları Yüzme Havuzu ve Cami, Konum: https://goo.gl/maps/7fpAguiY2ap643gM7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Merkez, Aksu Mahallesi, Konum: https://goo.gl/maps/F1NR13RiajFbxYAq7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Onikişubat, KSÜ Tıp Fakültesi, Konum: https://goo.gl/maps/tjt9w7rxamZWvWSJ7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Malatya, Merkez, Çiğdem Tozkoparan Kadın Kültür Ve Spor Merkezi, Konum: https://goo.gl/maps/oc99BGZZ41yyYq8H9, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Kahramanmaraş, Onikişubat, Özel Hacı Şaban Gemci Ortaokul Erkek Öğrenci Yurdu, Konum: https://goo.gl/maps/CR2kEFNy4wAJrhes5, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Kahramanmaraş, Merkez, Ebrar Site Önü , Konum: https://goo.gl/maps/1uNwyBzsw76zRhJw9, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Dulkadiroğlu, Elmalar Köyü, Konum: https://goo.gl/maps/GdpDTowooi237xdBA, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Hatay, Antakya, İskenderun Teknik Üniversitesi, Konum: https://goo.gl/maps/8nk7EZWJiNdGtzUM6, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Malatya, Battalgazi, Hanımın Çiftliği, Konum: https://goo.gl/maps/QZtg8VUDNvvcHLhY8, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Osmaniye, Kadirli, Aslantaş Gençlik Kampı, Konum: https://goo.gl/maps/1mdE2A4QZnPbbeqw5, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Malatya, Yeşilyurt, Nikah Sarayı, Konum: https://goo.gl/maps/eFm4VrYBqJLMAehp9, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Hatay, İskenderun, İskenderun Adalet Sarayı yanı, Gürsel, Eyüp Sultan Cd. No:2 Kızılay Çadırı, Konum: https://goo.gl/maps/CmCmLGUD3ycH4Fbs9, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/2
+- Kahramanmaraş, Dulkadiroğlu, Müftülük Önü, Konum: https://goo.gl/maps/6u3Jd6XCHG58NwVw5, Kaynak: https://twitter.com/Kizilay/status/1626202432060489731?s=20&t=-eilox-Jt4jf6AH5qWUXWQ
+- Şanlıurfa, Viranşehir, Viranşehir Gençlik Merkezi, Konum: https://goo.gl/maps/1PVR29VGNc7FUPiJ8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Yeşilyurt, Şeker Fabrikası Çadır Alanı, Konum: https://goo.gl/maps/niKp2shCx45qPYmQ6, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Malatya, Battalgazi, Millet Parkı, Konum: https://goo.gl/maps/c8j6M3npjYNGajw69, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Gaziantep, Şahinbey, Selâhaddîn-i Eyyûbî Eğitim Merkezi, Konum: https://goo.gl/maps/brAzmATM8rn7NJ5XA, Kaynak: https://twitter.com/gaziantepbeld/status/1624452854801989632?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Hatay, Antakya, Antakya/il Jandarma Komutanlığı İçerisinde, Konum: https://goo.gl/maps/Xk5XgpTEoXYFK7nQ6, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Malatya, Yeşilyurt, Devlet Demir Yolları, Konum: https://goo.gl/maps/qG7i2PnoACD6eVNA9, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Hatay, Defne, Aşağıokçular Ortaokulu, Konum: https://goo.gl/maps/ashnDZvJzTELRaaD8, Kaynak: https://twitter.com/hataybsb/status/1624354423563513857?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Hatay, Defne, Dostluk Parkı, Sümerler Mahallesi, Konum: https://goo.gl/maps/y2bkNh7cv22ND6dx5, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/3
+- Kahramanmaraş, Merkez, Kadriye Çalık Kız Yurdu, Konum: https://goo.gl/maps/DkgScYQQpCsFhhzJ9, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Malatya, Battalgazi, Öğretmenler Ortaokulu, Konum: https://goo.gl/maps/cua1f3At2RKVKrLc7, Kaynak: https://www.instagram.com/p/CojO53MoRJv/
+- Osmaniye, Kadirli, Kadirli Gençlik Merkezi, Konum: https://goo.gl/maps/rPv6cj6fVnm7tvBx8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Hatay, İskenderun, İskenderun Devlet Hastanesi, Konum: https://goo.gl/maps/HswJhyuhUEovzEfB8, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Malatya, Merkez, PTT Baş Müdürlüğü, Konum: https://goo.gl/maps/UZFuuURPU2EdJLU97, Kaynak: https://twitter.com/kadikoybelediye/status/1624816271152885763
+- Kahramanmaraş, Onikişubat, Nisa Fırın, Konum: https://goo.gl/maps/CVNhiGSnszr77CG87, Kaynak: https://twitter.com/KendineMuzisyen/status/1622908693552439296
+- Kilis, Merkez, Söğütlüdere Semt Sahası, Konum: https://goo.gl/maps/YBu8T4YJJcaSY35m7, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kilis, Merkez, Kilis Kız Yurdu, Konum: https://goo.gl/maps/4Uw5tdiZmLzw2Qk98, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Yazıhan, Çok Programlı Anadolu Lisesi, Konum: https://goo.gl/maps/povnQw3wmxGTwpsv5, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/4
+- Hatay, İskenderun, Pınarbaşı Cad. Eski İtfaiye Yanı No:6 İskenderun, Konum: https://goo.gl/maps/yELkpy2W5zQJJzK36, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Malatya, Merkez, Malatya Büyükşehir Belediyesi Önü, Konum: https://goo.gl/maps/BijRFg66E4RxtEvB8, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Malatya, Battalgazi, Alacakapı Mahallesi, Konum: https://goo.gl/maps/wmSjnpQX1p7167e56, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Hatay, Antakya, Çevre Yolu üzeri Doğa Koleji yakını Zeus Yüzme Havuzu, Konum: https://goo.gl/maps/HZbo1pCa7qtmh6tq7, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/1
+- Hatay, Samandağ, Öğretmen Evi, Konum: https://goo.gl/maps/X6oyTLTBP3f464r67, Kaynak: https://twitter.com/HatayBSB/status/1624048548688936964/photo/4
+- Kahramanmaraş, Onikişubat, Mimar Sinan Mahallesi Engelsiz Yaşam Merkezi, Konum: https://goo.gl/maps/vvoCtFzKmEZ1qew29, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Hatay, İskenderun, Sakarya Mahallesi 288/13 no:21 Yeni Camii yanı, Konum: https://goo.gl/maps/Xks9gZtZBML8HVWY8, Kaynak: https://www.instagram.com/p/Coo_1n8N1Ej/?igshid=OTRmMjhlYjM=
+- Hatay, Antakya, Teknik Üniversitesi Kapalı Spor Salonu, Konum: https://goo.gl/maps/uBW6cFfq2eu38UiEA, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Şanlıurfa, Eyyübiye, Cevahir Han, Konum: https://goo.gl/maps/qUvGnXxajTnPGRp9A, Kaynak: https://twitter.com/CevahirHan/status/1622639140037705728
+- Hatay, Hassa, Hassa Belediyesi Önü, Konum: https://goo.gl/maps/pWuvQJyEDs5Xiota6, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Malatya, Yeşilyurt, Tren Garı, Konum: https://goo.gl/maps/UxkA7Toajfqaun399, Kaynak: https://twitter.com/valiunlu/status/1624056209304059906
+- Osmaniye, Merkez, Osmaniye Tosyalı Spor Salonu, Konum: https://goo.gl/maps/G6dubtathqN7sheDA, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Yeşilyurt, Çok Programlı Anadolu Lisesi, Konum: https://goo.gl/maps/NrqK4jGXEMnmZic9A, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Malatya, Yeşilyurt, Orgeneral Eşref Bitlis Anadolu Lisesi, Konum: https://goo.gl/maps/pz7Zqajxs5xoQLGD7, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Osmaniye, Düziçi, Düziçi Harun Reşit Talebe Yurdu, Konum: https://goo.gl/maps/QjwHpBsL4V8cUNXA8, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Kahramanmaraş, Dulkadiroğlu, Fuar Merkezi, Konum: https://goo.gl/maps/6xWx2VQFgD7CdZXp8, Kaynak: https://twitter.com/Kizilay/status/1626202432060489731?s=20&t=-eilox-Jt4jf6AH5qWUXWQ
+- Kahramanmaraş, Onikişubat, Marash Life Hastanesi, Konum: https://goo.gl/maps/3KvoDzkNFk3UXuEC8, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Osmaniye, Merkez, Çok Amaçlı Spor Salonu, Konum: https://goo.gl/maps/m6J6d2Umn6iipx5X8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Hatay, Antakya, Antakya Ataturk Parki-Kizilay Cadiri-Kışla Saray, Park Sk. No:23  , Konum: https://goo.gl/maps/Wn7Td2qap57MrFPy9, Kaynak: https://twitter.com/HatayBSB/status/1624048527553830915/photo/1
+- Malatya, Battalgazi, Eşref Bitlis Erkek Öğrenci Yurdu, Konum: https://goo.gl/maps/oRnXTF8hGMWfBrf58, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Kilis, Merkez, Beşevler 2500 Kişilik Spor Salonu, Konum: https://goo.gl/maps/rbc3SU7gruPyBhN8A, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Yeşilyurt, Çigdem Tozkoparan, Konum: https://goo.gl/maps/cJeEP3ir8oGrAmS99, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Malatya, Doğanşehir, Doğanşehir, Konum: https://goo.gl/maps/1FsQvkaDQRZ4rTbV7, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Hatay, İskenderun, İskenderun Millet Parkı, Konum: https://goo.gl/maps/DGcxoBVH98wRNBt96, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Kahramanmaraş, Onikişubat, Binevler Mahallesi 1039. Sokak, Konum: https://goo.gl/maps/mFgc5Py8WCaoaW9n9, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Afşin, NFK Şehir Devlet Hastanesi, Konum: https://goo.gl/maps/gp9QKu2PtAcw41Nd6, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Osmaniye, Düziçi, Düziçi Spor Salonu ve Gençlik Merkezi, Konum: https://goo.gl/maps/koBLjDXrhnntmKt48, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Battalgazi, Şehitfevzi Mah., Konum: https://goo.gl/maps/BFcFALGVG4cALdmZA, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Kahramanmaraş, Dulkadiroğlu, Küpeli Kız Köyü, Konum: https://goo.gl/maps/1xjuWCsp1kxAxjLo9, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Hatay, Antakya, Adliye Şubesi ve Prime AVM, Konum: https://goo.gl/maps/NDrf9feTCnnno2Mn9, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/1
+- Kahramanmaraş, Pazarcık, Külhaş Karahöyük Köyü, Konum: https://goo.gl/maps/H45DQ71A4iMGPoQc6, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Dulkadiroğlu, 112 Acil Çağrı Merkezi, Konum: https://goo.gl/maps/YAqND4715ByUpQRs7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Şanlıurfa, Haliliye, Şanlıurfa Öğretmenevi, Konum: https://goo.gl/maps/mVZqrjrbJ3vUzKCm6, Kaynak: https://twitter.com/Mehmet633673/status/1624911650003292164
+- Hatay, Defne, Defne Sevsen Nevzat Şahin Ortaokulu Bahçe Giriş Kapısı, Konum: https://goo.gl/maps/GjnaFZJDuUDVmYnw5, Kaynak: https://twitter.com/HatayBSB/status/1624048548688936964/photo/2
+- Kahramanmaraş, Onikişubat, Doğa Koleji Kahramanmaraş, Konum: https://goo.gl/maps/3QZzxjfjXk2Xrty29, Kaynak: https://twitter.com/DogaOkullari/status/1622672661586354203
+- Malatya, Yeşilyurt, Muhammed Ali Clay Spor Salonu, Konum: https://goo.gl/maps/JU5U6zNcDefgC6p1A, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Kahramanmaraş, Onikişubat, Şehit Akif Akçadağ Anadolu Lisesi, Konum: https://goo.gl/maps/badcP62n4XQkwY8X8, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Malatya, Battalgazi, Battalgazi Kız Öğrenci Yurdu, Konum: https://goo.gl/maps/X6CfRDBwNJYhUP3A6, Kaynak: https://gsb.gov.tr/haber-detay.html/968
+- Kahramanmaraş, Merkez, KSÜ Fen Fakültesi, Konum: https://goo.gl/maps/quV8mCQUrvJ9BSoX7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Malatya, Merkez, Belediye Yanı Otopark Alanı, Konum: https://goo.gl/maps/tDUwjtFoUguprNdy9, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Malatya, Yeşilyurt, Kent Konseyi, Konum: https://goo.gl/maps/p8wF2oX9wNetkQ737, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Şanlıurfa, Hilvan, Hilvan Spor Salonu, Konum: https://goo.gl/maps/RoDZ5XcvRCAgro188, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Merkez, Ballıca Mahallesi Muhtarlığı, Konum: https://goo.gl/maps/A98YgaoLT1kxMSKe8, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Kahramanmaraş, Dulkadiroğlu, Karaziyaret Mahallesi Merkez, Konum: https://goo.gl/maps/bWmMscRu3DQQWh23A, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Hatay, İskenderun, Muhyiddin Ibni Arabi KYK Yurdu Erkek Ogrenci Yurdu, Konum: https://goo.gl/maps/bwapXsLcvrFU3ERC9, Kaynak: https://twitter.com/HatayBSB/status/1624048548688936964/photo/1
+- Hatay, Antakya, Jandarma Komutanlığı Önü, Konum: https://goo.gl/maps/exEG3H7R5MvZ9TU49, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Malatya, Merkez, Yeşiltepe Kapalı Spor Salonu Yanı, Konum: https://goo.gl/maps/ELSgT9WyB1KNiiGT8, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Kilis, Merkez, 7 Aralık Semt Sahası, Konum: https://goo.gl/maps/x5fuFjmVyy1K5ZQy9, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Battalgazi, Hürriyet Parkı, Konum: https://goo.gl/maps/U3azvYi4as6ovXo29, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Kahramanmaraş, Dulkadiroğlu, Ballıca Mahallesi, Konum: https://goo.gl/maps/diyPzryU3cKGLyNn8, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Osmaniye, Merkez, OKÜ Genç Ofis ve Otağ Çadırı, Konum: https://goo.gl/maps/2cGvrjWCsbfbraW1A, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kilis, Merkez, Yüzme Havuzu, Konum: https://goo.gl/maps/ZJYCfh68wj12CKERA, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Onikişubat, HASGÜL ÖĞRENCİ YURDU, Konum: https://goo.gl/maps/zjyadWtBoR5tbPVAA, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Malatya, Yeşilyurt, Onbin Konutlar, Konum: https://goo.gl/maps/VrfcHF2EHaiCE7f66, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Osmaniye, Bahçe, Bahçe Spor Salonu, Konum: https://goo.gl/maps/2dcU49HogZnet8Jp9, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Afşin, Afşin Stadı, Konum: https://goo.gl/maps/dHXXsTQX5ggNi9te7, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Merkez, Kocaeli Büyükşehir Belediyesi Gezici Aşevi- Kahramanmaraş Valilik Önü, Konum: https://goo.gl/maps/JQpjPhRar2QeZ1Bz8, Kaynak: https://twitter.com/kocaelibld/status/1622980989386457088
+- Kahramanmaraş, Dulkadiroğu, Şerefoğlu Köyü, Konum: https://goo.gl/maps/M3aRivfEFR7FvTMb6, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Malatya, Yeşilyurt, Belsos Dede Korkut Tesisi, Konum: https://goo.gl/maps/ECmMwWxjedrJzwan9, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Malatya, Merkez, MALATYA HACI BEKTAŞ VELİ KÜLTÜR MERKEZİ VAKFI
+GENEL MERKEZİ
+
+ , Konum: https://goo.gl/maps/YvtysBV844rH9qJZA, Kaynak: https://twitter.com/turkdaimaileri/status/1622567979270516736?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Osmaniye, Merkez, Osmaniye Gençlik Merkezi, Konum: https://goo.gl/maps/rsbvCtsyVUSQCf2W6, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Hatay, İskenderun, Battaniye/AyakkabıGıda (Vera Boulevard Cafe), Konum: https://goo.gl/maps/xGvzBZe45SbfjjxbA, Kaynak: https://twitter.com/BabalaTv/status/1624172568801431554
+- Hatay, Defne, Sevgi Parkı, Sümerler Mahallesi, Konum: https://goo.gl/maps/UvkcSFyA71AP3jpj7, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/3
+- Şanlıurfa, Ceylanpınar, Ceylanpınar Spor Salonu, Konum: https://goo.gl/maps/hzGUz5nTeKVWYKpm9, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Yeşilyurt, YİKOB Binası, Konum: https://goo.gl/maps/REe2dnPZFin9ERSb7, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Kahramanmaraş, Merkez, Süleymaniye Yükseköğrenim Erkek Öğrenci Yurdu, Konum: https://goo.gl/maps/ynPi6DLHCoCK8FJN9, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Kahramanmaraş, Dulkadiroğlu, Kayabaşı Mahallesi, Konum: https://goo.gl/maps/ymF8a7e9PFDmBKCW6, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Kahramanmaraş, Dulkadiroğlu, Çiğli Köyü, Konum: https://goo.gl/maps/X6jsR923tUyzt2qu7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Hatay, Samandağ, Samandağ Kültür Merkezi ve Samandağ Halk Eğitim Merkezi, Konum: https://goo.gl/maps/n9Tj9iEtvvzoBBTq5, Kaynak: https://twitter.com/hataysiad/status/1623759886973640704/photo/3
+- Osmaniye, Merkez, Cevdetiye Spor Eğitim Merkezi, Konum: https://goo.gl/maps/qE7mDpeopTHnPhSdA, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Battalgazi, Başharık Mah., Konum: https://goo.gl/maps/wcC6K4SbS83KVyJS7, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493
+- Osmaniye, Merkez, Karacaoğlan Erkek Yurdu, Konum: https://goo.gl/maps/d9CnVEAw4o8Pq8yu8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Osmaniye, Merkez, Kayıboyu Kız Yurdu, Konum: https://goo.gl/maps/YDMbMJ4fdMKqt9hQ7, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Osmaniye, Merkez, Osmaniye Olimpik Havuz, Konum: https://goo.gl/maps/KiH4WmcdTzZJi1L46, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Battalgazi, Fırat Gençlik Merkezi, Konum: https://goo.gl/maps/RMJxPjbv8JL8Cz7i8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Dulkadiroğlu, Kahramanmaraş İl Afet ve Acil Durum Müdürlüğü, Konum: https://goo.gl/maps/3LJNfwfPiFn38R4Q7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/1
+- Malatya, Merkez, Gençlik Spor İl Müdürlüğü, Konum: https://goo.gl/maps/6EHs9vZiBmUuq4ANA, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Kahramanmaraş, Onikişubat, Akarca Öğrenci Yurdu, Konum: https://goo.gl/maps/hMA6uaKk8LY255zU9, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Kahramanmaraş, Dulkadiroğlu, Pınarbaşı Mahallesi, Konum: https://goo.gl/maps/3ajqUo8ZDTRXkedNA, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Malatya, Yeşilyurt, Merkez Yıldız Büfe, Konum: https://goo.gl/maps/oRDPmEJvvGPSgVML6, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Osmaniye, Kadirli, Kadirli Karma Yurt Müdürlüğü, Konum: https://goo.gl/maps/iifpk7XPtnRxD6aJA, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Şanlıurfa, Bozova, Bozova Gençlik Merkezi, Konum: https://goo.gl/maps/sP2JGpNyXho2wPVt7, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Yeşilyurt, Hilal Park, Konum: https://goo.gl/maps/J2oqZEbxN9gJPeH6A, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493?s=20&t=K8Y9qo_OFM9VlgAA3TpGcA
+- Şanlıurfa, Ceylanpınar, Ceylanpınar Gençlik Merkezi, Konum: https://goo.gl/maps/vDQi8ooFwadW14xw8, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kilis, Merkez, Bilal Habeşi Erkek Yurdu, Konum: https://goo.gl/maps/JPUb7N26efWzDhMa9, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Afşin, Afşin Semerkand Vakfı, Konum: https://goo.gl/maps/XNVPjq9WJY4WHxJy8, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Kahramanmaraş, Merkez, Binevler Kapalı Semt Pazarı, Konum: https://goo.gl/maps/dsKyYCMWjLMDCnwy7, Kaynak: https://twitter.com/CarrefourSA/status/1625487364075454465
+- Osmaniye, Merkez, Şehitoğlu Öğrenci Yurdu, Konum: https://goo.gl/maps/osKhK2hpiWGotGGL9, Kaynak: https://www.google.com/maps/d/u/0/viewer?mid=1Fthqb2VG-zK_Fu06lo1yPFAeRCyPfNs&g_ep=CAESCTExLjUxLjcwNBgAQgJVRw%3D%3D&shorturl=1&ll=36.71340399999998%2C36.482726900000024&z=8
+- Malatya, Yeşilyurt, Maşti Traybüs Yerleşkesi, Konum: https://goo.gl/maps/9o9z889Wx4fyWFji8, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Kahramanmaraş, Dulkadiroğlu, McDonalds Egemenlik, 46060 Kahramanmaraş Merkez/Kahramanmaraş 
+ATATÜRK PARKI
+, Konum: https://goo.gl/maps/DSUB2QBXzUhXvrwNA, Kaynak: https://www.instagram.com/p/CocCDmzt_CI/?utm_source=ig_web_copy_link
+- Malatya, Battalgazi, Battalgazi Hastanesi Önü İkram Aracı, Konum: https://goo.gl/maps/Ha9qFXPms5NudErT8, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440/photo/1
+- Kocaeli, İzmit, Lotus Meat, Konum: https://goo.gl/maps/k3mG89mM2FFEAC8q6, Kaynak: https://www.instagram.com/stories/lotusmeat/3033073929144981252/
+- Şanlıurfa, Hilvan, Hilvan Gençlik Merkezi, Konum: https://goo.gl/maps/ULcWPf3ar7kdMGR2A, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Yeşilyurt, Karahan Mah., Konum: https://goo.gl/maps/HKV7MdM4ScLUgZCV8, Kaynak: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/3
+- Osmaniye, Merkez, İl Müdürlüğü Ana Bina, Konum: https://goo.gl/maps/nvWUBBSfsuFTfzAw9, Kaynak: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Battalgazi, Belediye Başkanlığı Önü İkram aracı, Konum: https://goo.gl/maps/ZBjZKCZdojGom8d2A, Kaynak: https://mobile.twitter.com/Kizilay/status/1623400640373309440
+- Kahramanmaraş, Onikişubat, Belediye Otogarı, Konum: https://goo.gl/maps/gQM8cByLWkibDZNJ7, Kaynak: https://twitter.com/buyuksehirkm/status/1624007709463830531/photo/2
+- Hatay, Samandağ, Kadıköy Belediyesi Gezici Aşevi, Konum: https://t.co/KeYzf7MTX4, Kaynak: https://twitter.com/kadikoybelediye/status/1622995002694545408
+- Hatay, Defne, Kadıköy Belediyesi Gezici Aşevi, Konum: https://t.co/vVhbIIxS0e, Kaynak: https://twitter.com/kadikoybelediye/status/1622995002694545408

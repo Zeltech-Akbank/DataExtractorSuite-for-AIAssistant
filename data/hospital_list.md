@@ -1,0 +1,16 @@
+- Kahramanmaraş, Onikişubat, Aliya İzzetbegoviç Parkı, Kaynak: https://twitter.com/RusEmbTurkey/status/1623722679948771329
+- Hatay, Antakya, Ovakent, Kaynak: https://twitter.com/uzembassyturkey/status/1624029117657059330?cxt=HHwWhMC47Zj42oktAAAA
+- Hatay, İskenderun, Sancaktar gemisi, Kaynak: https://twitter.com/tcsavunma/status/1623620438227095552?cxt=HHwWgMC46fWLoYgtAAAA
+- Hatay, Defne, Sümerler Anfi Tiyatro (Memorial Sağlık Destek Birimi), Kaynak: https://twitter.com/MemorialSaglik/status/1623401599207890944?cxt=HHwWgICziejJvYctAAAA
+- Adıyaman, Merkez, Mimar Sinan Parkı (Bahçeşehir Üniversitesi Sahra Hastanesi), Kaynak: https://twitter.com/avmelihdemirer/status/1624078277911379968
+- Adıyaman, Merkez, TPAO Kampüsü (Memorial Sağlık Merkezi), Kaynak: https://twitter.com/MemorialSaglik/status/1623958989775032320?cxt=HHwWgMC-tZuGu4ktAAAA
+- Hatay, Arsuz, İskenderun-Arsuz Expo, Kaynak: https://twitter.com/DocDrLutfuSavas/status/1625849798426501131
+- Hatay, Dörtyol, MMK Metalurji Limani (Gemi), Kaynak: https://twitter.com/Kazimdegirmnci/status/1624090038211313664
+- Kahramanmaraş, Dulkadiroğlu, Şehir Hastanesi Bahçesi (Milli Savunma Bakanlığı Sahra Hastanesi), Kaynak: https://www.iha.com.tr/kahramanmaras-haberleri/kahramanmarasta-seyyar-sahra-hastanesi-kullanima-aciliyor-4174674/
+- Hatay, Dörtyol, Hatay Dörtyol Devlet Hastanesi Bahçesi (Memorial Sağlık Destek Birimi), Kaynak: https://twitter.com/MemorialSaglik/status/1623401601741234177?cxt=HHwWgoCx-frJvYctAAAA
+- Hatay, Antakya, Acı Badem Sağlık Tırı ( Eğitim Araştırma Hastanesi Bahçesi), Kaynak: https://twitter.com/acibademuniv/status/1623975047810453505
+- Hatay, İskenderun, Akdeniz Mesleki Ve Teknik Anadolu Lisesi Bahçesi (Yeni Devlet Hastanesi Karşısı), Kaynak: https://twitter.com/haluklevent/status/1623699433484390403
+- Hatay, Antakya, Sümerler Mahallesi Dostluk Parkı, Kaynak: https://twitter.com/hataybsb/status/1624354423563513857?s=48&t=R4e1M5y1PVcsiPeiX05YHA
+- Kahramanmaraş, Elbistan, Pınarbaşı Mesire Alanı (Çadırkent Memorial Çocuk Sağlığı Merkezi), Kaynak: https://twitter.com/MemorialSaglik/status/1623671007050440704?cxt=HHwWgIC99bSLuIgtAAAA
+- Hatay, Antakya, Hatay Devlet Hastanesi, Kaynak: https://twitter.com/haliturgan/status/1624083904394104835?cxt=HHwWhsC47Znt84ktAAAA
+- Hatay, İskenderun, Bayraktar Gemisi, Kaynak: https://twitter.com/tcsavunma/status/1623620438227095552?cxt=HHwWgMC46fWLoYgtAAAA

@@ -1,0 +1,208 @@
+- Adana, Güney Yıldız Parkı, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Aski Atatürk Kapalı Spor Salonu, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Sarıçam Ertuğrul Gazi Mahallesi Gündüz Bakımevi Yamaçlı - Güneşli Mahalle Merkezi, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Tüyap Fuar alanı, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Kent Meydanı Sucuzade Mahallesi, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Eral Okullar: Türkmenbaşı Kampüsü, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Selahattin Eyyubi Mahalle Merkezi, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Spor Park Yurt Mahallesi, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Güneyyıldızı Stadı, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Hadırlı Mahalle Merkezi, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Diyarbakır, Tema Parkı (Kayapınar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Hatay, Muhtarlık Yanı Park(Yunusemre), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Adana, Beyazevler Yalçınpark Okuma Salonu, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Gaziantep, HASAN CELAL GÜZEL MİLLET BAHCESİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622499695951052802
+- Adana, ABB Güney Park, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Aladağ İtfaiye Binası, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, M1 Adana Alışveriş Merkezi, Bilgi Kaynağı: https://adana.afad.gov.tr/adanadaki-toplanma-alanlari-ve-gecici-barinma-alanlarimiz-yayinlandi
+- Diyarbakır, Diyarbakır Stadyumu (Kayapınar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Diyarbakır, Koşuyolu Parkı (Bağlar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Diyarbakır, Newroz Park (Bağlar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Adıyaman, Yeni Mahalle Semt Pazar Yeri, Bilgi Kaynağı: https://twitter.com/bahozzOzsunar/status/1622905742276558848
+- Adana, Kozan Sır Elif Gündüz Bakımevi Ceyhan İtfaiye Binasi, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Adana, Cumhuriyet Park Turgut Özal Niyet Akademi, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Diyarbakır, Körhat Parkı (Bağlar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Diyarbakır, Kent Meydanı (Kayapınar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Diyarbakır, Batıkent (Bağlar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Adana, Merkez Park Derman, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Gaziantep, ALLEBEN VADİ PARK, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622499695951052802
+- Gaziantep, BURÇ ORMANI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622499695951052802
+- Adana, Dumlupınar Mahalle Merkezi, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Diyarbakır, Seyrantepe Toki Park (Yenişehir), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Adana, Yumurtalık Niyet Akademi Karataş Kurs Merkezi, Bilgi Kaynağı: https://twitter.com/adana_bld/status/1622621175925858304?s=46&t=6DRXjowLZ9GX3MFYGJgnkQ
+- Hatay, Yıldız Blokları Çocuk Parkı(İsmet İnönü), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Hatay, Cumartesi Pazarı Yanı(Sakarya), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Hatay, Mustafa Kemal Mah. Çocuk Parkı Cem Köy(Mustafa Kemal), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Gaziantep, 100. YIL PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622499695951052802
+- Hatay, Tayfur Sökmen Bulvarı Park Alanı(Çay), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Hatay, Aşıklar Yolu/İkem Koleji Yolu(Meydan Mah.), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Gaziantep, 10 NİSAN PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622499695951052802
+- Gaziantep, KAVAKLIK PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622499695951052802
+- Diyarbakır, Anıt Park (Yenişehir), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Gaziantep, ERİKÇE PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622499695951052802
+- Diyarbakır, Seyrantepe Spor Kompleksi (Yenişehir), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Adıyaman, 75. Yıl Koşu Parkı, Bilgi Kaynağı: https://twitter.com/bahozzOzsunar/status/1622905742276558848
+- Diyarbakır, Park Orman Diclekent Tarafı (Kayapınar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Hatay, Sakarya Cami Yanı(Sakarya), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Gaziantep, MEHMET ANNAÇ PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622499695951052802
+- Hatay, Çocuk Parkı Huzur Kent(Modernevler), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Diyarbakır, Sümer Park (Yenişehir - Şehitlik), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Diyarbakır, Park 75 (Kayapınar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Hatay, Mehmet Güllü Parkı(Karayılan), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Hatay, Türkmenistan Parkı/Kore Şehitleri Parkı(Savaş Mah.), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Adıyaman, Eğri Çay Parkı, Bilgi Kaynağı: https://twitter.com/bahozzOzsunar/status/1622905742276558848
+- Hatay, 5 Temmuz Stadyumu(Pirireis), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Malatya, Akçadağ Anadolu Lisesi (Akçadağ, Doğu Mahallesi), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Hatay, Barış Manço Çocuk Parkı(Çay), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Kahramanmaraş, (Pazarcık) Kapalı Pazar Yeri ve Parkı, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Kahramanmaraş, (Afşin) Site 1 Kapalı Spor Salonu, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Hatay, İDÇ Stadyum(Karayılan), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Diyarbakır, Dağ Kapı Meydanı (Sur), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Hatay, İskenderun Millet Parkı(İsmet İnönü), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Diyarbakır, Talaytepe Amedspor Kompleksi (Kayapınar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Diyarbakır, Şehit Halit Gülser Spor Kompleksi (Kayapınar), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Diyarbakır, Demirok Düğün Salonu (Şehitlik), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622476316804100097
+- Kahramanmaraş, (Türkoğlu) Kent Meydanı, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Kahramanmaraş, (Göksun) Cevher Dudayev Parkı, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Kahramanmaraş, (Türkoğlu) Mesire Alanı, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Kahramanmaraş, (Pazarcık) Mehmet Emin Arıkoğlu Parkı, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Hatay, Cemevi Arkası(Mustafa Kemal), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Kahramanmaraş, (Nurhak) Lisesi, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Gaziantep, ALLEBEN GÖLETİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622499695951052802
+- Kahramanmaraş, (Afşin) Efsus İlkokulu, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Malatya, Akçadağ Belediye Binası ve Lojman Alanı (Akçadağ, Doğu Mahallesi), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Hatay, Barıştepe Mah. Çocuk Parkı ve Engelli Çocuk Parkı/SODES(Barıştepe), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Hatay, Stadyum(Sarıseki), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Hatay, Fatih Mahallesi Şehit Er Veysel Yılmaz Parkı(Denizciler), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Hatay, Yunusemre Mah. Maydanoz Parkı(Yunusemre), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Hatay, Fuat Tosyalı Gençlik Çocuk Parkı(Sarıseki), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Hatay, Kültür Merkezi Düğün Salonu ve Araç Parkı Yeşil Alan(Karayılan), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Hatay, Barış Sitesi Yanı(İsmet İnönü), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622539608528506880
+- Kahramanmaraş, (Elbistan) Açık Pazar Arkası, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Kahramanmaraş, (Göksun) Belediye İş Merkezi, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Kahramanmaraş, (Elbistan) Esentepe Parkı, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Gaziantep, ÇAMLIK PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622499695951052802
+- Kahramanmaraş, (Andırın) Yatılı Bölge İlköğretim Okulu, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Malatya, Hami Aydınlar Parkı (Arapgir, Köseoğlu Mahallesi), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Hami Aydınlar Çpl (Arapgir, Yeni Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Arguvan Belediye Binası Arsası (Arguvan, Yeni Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Kahramanmaraş, (Andırın) Hükümet Konağı, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Malatya, Mehmet Akif İlkokulu (Arapgir, Mehmet Akif Mahallesi), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Arapgir Halk Eğitim Merkezi (Arapgir, Mehmet Akif Mahallesi), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Hürriyet Park Alanı (Battalgazi, Zafer Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Nazım Hikmet Meydanı (Arguvan, Yeni Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Arapgir Karayolları 85. Şube Şefliği (Arapgir, Çarşı Mahallesi), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Arapgir Belediye Binası ve Bahçe Alanı (Arapgir, Köseoğlu Mahallesi), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, İnönü Stadyumu (Battalgazi, Üçbağlar Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Mişmiş Park Alanı (Battalgazi, Orduzu Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Fatma Fikriye Kutluay Anadolu İ. H. L. (Arapgir, Mehmet Akif Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Kahramanmaraş, (Elbistan) Mehmet İnan Park, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622469677774434306
+- Malatya, Arapgir Maski Binası ve Arsası Toplanma Alanı (Arapgir, Mehmet Akif Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Ahmet Zeynel İlkokulu (Arapgir, Berenge Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Battalgazi Şehit Metin Atabey Parkı (Battalgazi, Fırat Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Doğanyol Lisesi ve Lojman Bahçesi (Doğanyol, İsak Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Şehit Barış Aybek Endüstri Meslek Lisesi (Doğanşehir, Esentepe Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Kuluncak Belediyesi Hizmet Binası ve Arsası (Kuluncak, İstiklal Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Kale Hükümet Konağı (Kale, Soğukpınar Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Ertuğrul Gazi Ortaokulu (Doğanşehir, Karşıyaka Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Taşhan ve Arsası (Hekimhan, Bağyolu Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Arapgir Belediyesi Ardiyesi Toplanma Alanı (Arapgir, Mehmet Akif Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Malatya Büyükşehir Belediyesi Nikah Sarayı Bahçesi (Yeşilyurt, Çilesiz Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Yazıhan Sağlık Ocağı Lojman Arazisi (Yazıhan, Doğuş Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Kuluncak Bicir Okulu ve Arsası (Kuluncak, Bicir Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Şanlıurfa, BİRECİK MEYDAN MAH. TOKİ CAMİİ VE ÇEVRESİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Malatya, Şehit Fuat Bozkurt İlkokulu (Doğanşehir, Altıntop Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Şehit Serdal Toprak Çok Programlı Anadolu Lisesi ve Doğanşehir Ortaokulu (Doğanşehir, Yeni Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Şanlıurfa, CEYLANPINAR MEHMET AKİF ERSOY PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, SÜLEYMAN ŞAH PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ENVER NEBİHE KÜLTÜR MERKEZİ VE ÇEVRESİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Malatya, Kuluncak Sofular Köprü Başı Meydanı Toplanma Alanı (Kuluncak, Sofular Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Şanlıurfa, BİRECİK KURTULUŞ MAH. GÜLTEPE SAĞLIK OCAĞI VE ÇEVRESİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, METEROLOJİ MÜDÜRLÜĞÜ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, AKÇAKALE KENT PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Malatya, 100. Yıl İmam Hatip Ortaokulu (Battalgazi, Taştepe Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Şanlıurfa, BİRECİK MEYDAN MAH. ATATÜRK BELEDİYE MEYDANI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Malatya, Pütürge Kaymakamlığı Halı Saha (Pütürge, Taşbaşı Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Abdullah Gül Parkı (Yeşilyurt, Koyunoğlu Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Şanlıurfa, CEYLANPINAR GENÇLİK PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Malatya, Barguzu Sosyal Tesisleri (Yeşilyurt, Karakavak Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Şehit Kemal Özalper EML ve Atatürk Kız Lisesi (Battalgazi, Zafer Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Battalgazi Gençlik Spor İl Müdürlüğü Bahçesi (Battalgazi, Üçbağlar Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Yunus Emre İlkokulu (Doğanşehir, Doğu Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Yazıhan Stadı (Yazıhan, Yeni Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, DSİ 92. Şube Müdürlüğü (Battalgazi, Üçbağlar Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Sakarya Ortaokulu (Hekimhan, Turgut Özal Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Arguvan Hurşit Eren Parkı (Arguvan, Yeni Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Darende İlçesi Hükümet Konağı Bahçesi (Darende, Heyiketeği Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Fırat Mahallesi Muhtarlığı (Battalgazi, Fırat Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Şanlıurfa, BİRECİK ORMANLIK FİDANLIK, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Malatya, Kuluncak Yukarı Çayköy Mahallesi Cami Önü Toplanma Alanı, Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Fahri Kayahan Turgut Özal Parkı (Yeşilyurt, Turgut Özal Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Alvar Dostlar Kıraathanesi Meydanı (Kuluncak, Alvar Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Alvar Cem Evi Toplanma Alanı (Kuluncak, Alvar Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Kuluncak Karlık İlköğretim Okulu Toplanma Alanı, Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Battalgazi Üçbağlar Toplanma Alanı (Battalgazi, Çöşnük Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Kuluncak Milli Eğitim Müdürlüğü (Kuluncak, İstiklal Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Şanlıurfa, BOZOVA İLÇE STADYUMU, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Malatya, Şehit Subitay Sükut İmam Hatip Lisesi (Doğanşehir, Esentepe Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Yeşilyurt Kolukısa Anadolu Lisesi (Yeşilyurt, Hamidiye Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Battalgazi Belediyesi Bahçesi (Battalgazi, İstiklal Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Malatya, Battalgazi İlçesi Nevzat Er Parkı Toplanma Alanı (Battalgazi, Alacakapı Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Şanlıurfa, MEZRA PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Malatya, Hekimhan Futbol Sahası (Hekimhan, Bahçelievler Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Şanlıurfa, BİRECİK MEYDAN MAH. ULU CAMİİ VE KARŞISI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HİLVAN GENÇLİK KÜLTÜR MERKEZİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ARKEOLOJİ MÜZE BAHÇESİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Malatya, Hekimhan Fevzi Oktay Parkı (Hekimhan, Taşbaşı Mh.), Bilgi Kaynağı: https://twitter.com/MalatyaBelTr/status/1622448912903639043
+- Şanlıurfa, SİVEREK BUCAK PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, EYYÜBİYE YENİCE MAH. SPOR ALANI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, NOVADA AVM KARŞISI NECMETTİN CEVHERİ PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, SURUÇ FETHİ ŞİMŞEK PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, SELAHATTİN EYYÜBİ PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, CEYLANPINAR TURGUT ÖZAL PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ŞAİR NABİ ORTAOKULU VE VİRANŞEHİR ANAOKULU ARASI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, LEZGO PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, KARAKÖPRÜ ATAKENT MAH. ORMAN YOLU MESİRE ALANI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, SURUÇ YILDIRIM MAH. GENÇLİK MERKEZİ FUTBOL SAHASI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, MÜSLÜM DOĞAN ORTAOKULU, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HİLVAN MEHMET AKİF ERSOY İLKÖĞRETİM OKULU, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, VİRANŞEHİR KIŞLA MAH. BELEDİYE PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HİLVAN DEVLET HASTANESİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, FİRKAN TÜYSÜZ ŞEHİR STADYUMU, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, SURUÇ CUMHURİYET MAH. HAYVAN PAZARI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ZEYTİN DALI PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, SİVEREK FIRAT MAH. OLİMPİK YÜZME HAVUZU, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, CEYLANPINAR FATİH SULTAN MEHMET PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, BATTANİ PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HARRAN BELEDİYE ÖNÜ YEŞİL ALAN, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ESENTEPE MAH. ESENTEPE PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ŞEHİT ŞEFİK ŞEFKATLİOĞLU PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, İBRAHİM TATLISES PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HALİLİYE ATATÜRK MAH. TOPÇU MEYDANI (RABİA MEYDANI), Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HALİLİYE BAMSUYU MAH. NOVADA AVM, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HİLVAN 75.YIL İLKÖĞRETİM OKULU, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, MEHMET UZUN PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ŞEHİT ÜMİT YOLCU PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, KASAPTAŞI PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, CEYLANPINAR ÖZBEK MAH. CUMHURİYET PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, SURUÇ SARAYALTI MAH. BELEDİYE GARAJI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ŞEHİT SUAT ALOĞLU MESİRE ALANI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, SURUÇ GAP ANADOLU LİSESİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, EYÜP PEYGAMBER MAKAMI ALANI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, KARAKÖPRÜ DOĞUKENT MAH. 104. CADDE YAŞAM PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, DEVDEŞTİ PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HİLVAN ANADOLU LİSESİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ALİ BABA PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HALİLİYE PROF. ABDULKADİR KARAHAN CAD. TURGUT ÖZAL PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, SURUÇ CUMHURİYET MAH. CUMHURİYET MEYDANI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HİLVAN MESLEK YÜKSEK OKULU, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, VİRANŞEHİR GAZİ ANADOLU LİSESİ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HARRAN ÜNİVERSİTESİ YENİŞEHİR KAMPÜSÜ, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, SURUÇ HÜRRİYET MAH. HÜRRİYET PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ANTİN PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HİLVAN MESİRE ALANI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ŞEHİT AHMET OKTAY GÜNAK PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, MEHMET ALİ İZOL PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, HALİLİYE SANCAKTAR MAH. 11 NİSAN STADYUMU, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, ABDULKADİR KARABET PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880
+- Şanlıurfa, VİRANŞEHİR HÜRRİYET MAH. HÜRRİYET PARKI, Bilgi Kaynağı: https://twitter.com/bosunatiklama/status/1622520363996282880

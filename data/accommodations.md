@@ -1,0 +1,321 @@
+- Adana, Tüyap Fuar ve Kongre Merkezi, Bilgi Kaynağı: https://twitter.com/drsuleymanelban/status/1627743207835463680
+- Adana, Bahçeşehir Koleji, Bilgi Kaynağı: https://twitter.com/zeydankaralar01/status/1622644817506205709?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Adana, Eral İlkokulu ve Ortaokulu, Bilgi Kaynağı: https://twitter.com/ZeydanKaralar01/status/1622644817506205709
+- Adıyaman, TPAO, Bilgi Kaynağı: https://twitter.com/AdiyamanBelTR/status/1624014011250491394
+- Konya, Beytül-Hikmet Erkek Kur'an Kursu, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Konya, Yunus Emre Erkek Yatılı Kur'an Kursu, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Konya, İkrar Hafızlık Erkek Kur'an Kursu, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Malatya, Göztepe Yeşilcam Caddesi, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Malatya, OSB, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Adana, İhsan Sabancı Mesleki ve Teknik Anadolu Lisesi, Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj/
+- Adana, Türk Tekstil Vakfı Mesleki ve Teknik Anadolu Lisesi, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Hacı Özcan Sinağ Ortaokulu, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Orhangazi İmam Hatip Ortaokulu, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Abdullah Öngen Anaokulu, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Adana Rotary Kulübü Anaokulu, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Adana Alparslan Türkeş Bilim ve Teknoloji Üniversitesi, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Remzi Oğuz Arık İlkokulu, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Hüseyin Avni Coş İlkokulu, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Altıneller 100.Yıl ve Mavi Bulvar Kampüsü, Bilgi Kaynağı: https://twitter.com/zeydankaralar01/status/1622644817506205709?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Adana, Eral İlokul ve Ortaokul, Bilgi Kaynağı: https://twitter.com/zeydankaralar01/status/1622644817506205709?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Adana, Sabancı Merkez Camii, Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj/
+- Adana, 5 Ocak Yurdu, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Sevgi Anaokulu, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, TED Adana Koleji, Bilgi Kaynağı: https://twitter.com/zeydankaralar01/status/1622644817506205709?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Adana, Çukurova Üniversitesi, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Adana Koleji, Bilgi Kaynağı: https://twitter.com/zeydankaralar01/status/1622644817506205709?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Adana, Sarıçam Anadolu İmam Hatip Lisesi, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Adana Garı, Bilgi Kaynağı: https://www.instagram.com/p/CoX3dz0A_Pw/?igshid=NTdlMDg3MTY%3D
+- Adana, Kozanoğlu Lions Anaokulu, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Adana, Uğur Okulları, Bilgi Kaynağı: https://twitter.com/zeydankaralar01/status/1622644817506205709?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Adana, Adana Final Okulları, Bilgi Kaynağı: https://twitter.com/zeydankaralar01/status/1622644817506205709?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Adana, Şehit Ertan Tokuş İlkokulu, Bilgi Kaynağı: https://twitter.com/avbilaluludag/status/1623639373190160386/photo/1
+- Diyarbakır, Bağcılar Mesleki ve Teknik Anadolu Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Adıyaman, Gazi Spor Salonu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Adıyaman, Adıyaman Cemevi, Bilgi Kaynağı: https://twitter.com/turkdaimaileri/status/1622567979270516736?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Adana, Yüreğir Gençlik Merkezi, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Adıyaman, Atatürk Spor Salonu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Diyarbakır, Diyarbakır Spor Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Adana, Altıneller 100. Yıl Kampüsü, Bilgi Kaynağı: https://www.instagram.com/p/Coe6SBzodd_/
+- Diyarbakır, Sümerpark, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622625704750751744
+- Adıyaman, Safvan Bin Muattal Kız Yurdu, Bilgi Kaynağı: https://twitter.com/mahmutcuhadar4/status/1624062629705572353
+- Adana, Sabancı İlkokulu, Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj//
+- Adana, Adana Cemevi, Bilgi Kaynağı: https://twitter.com/turkdaimaileri/status/1622567979270516736?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Adana, Sadıka Sabancı İmam Hatip Lisesi Öğrenci yurdu, Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj/
+- Diyarbakır, Burhanettin Yıldız MTAL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Adana, Sabancı Mesleki ve Teknik Anadolu Lisesi, Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj/
+- Diyarbakır, Yenişehir Kız Anadolu İmam Hatip Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Diyarbakır, Diyarbakır Anadolu Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Diyarbakır, 85. Yıl Milli Egemenlik AL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Diyarbakır, Bağlar İBB Kiptaş Mesleki ve Teknik Anadolu Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Adıyaman, Adıyaman Atatürk Stadı, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Diyarbakır, Şehit Hatip Çağlar AL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Diyarbakır, Koşuyolu, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622625704750751744
+- Diyarbakır, Fatih Anadolu İHL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Ankara, Dini Yüksek İhtisas Merkezi , Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Diyarbakır, Yeni Diyarbakır AL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Diyarbakır, TOBB Ferdi Yiğit AİHL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Antalya, Dream World Palace Hotel, Bilgi Kaynağı: https://dreamworldpalace.com.tr/
+- Diyarbakır, Özel Eflatun MTAL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Adana, The Most Coffee, Bilgi Kaynağı: https://www.instagram.com/themostcoffe/
+- Adana, Enerjisa Tufanbeyli Mesleki Teknik Anadolu Lİsesi, Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj/
+- Diyarbakır, Nevruz Park, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622625704750751744
+- Adana, Ahmet Sabancı Anaokulu, Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj/
+- Diyarbakır, Diyarbakır Güzel Sanatlar Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Diyarbakır, Karacadağ AİHL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Adana, Çağ Üniversitesi Yaşar Bayboğan Kampüsü, Bilgi Kaynağı: https://twitter.com/Adana_Bld/status/1622962147322916864?s=20&t=UsNDJEhPEMucsKPTHjHcTg
+- Adıyaman, Besni İlçe Spor Salonu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Adana, Freya Cafe, Bilgi Kaynağı: https://www.instagram.com/freyacafe/
+- Adıyaman, Kahta İlçe Stadı, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Diyarbakır, Sur Anadolu İmam Hatip Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Adana, Minecan Anaokulu, Bilgi Kaynağı: https://twitter.com/zeydankaralar01/status/1622644817506205709?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Antalya, Hacı Mehmet Gebizli Dini İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Adana, Başkent Üniversitesi Özel Başkent Okulları, Bilgi Kaynağı: https://twitter.com/iskaraman/status/1623093598722859008
+- Diyarbakır, İMKB Fen Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Adana, ASKON Adana Şubesi, Bilgi Kaynağı: https://twitter.com/orhanaydin/status/1622517195937923075?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Ankara, Rıfat Börekçi Dini İhtisas Merkezi , Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Diyarbakır, Vali Aydın Aslan Fen Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Diyarbakır, 85. Yıl Milli Egemenlik Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Bursa, Bursa Dini İktisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Adana, Sadıka Sabancı Ortaokulu, Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj/
+- Adana, Altıneller Mavi Bulvar Kampüsü, Bilgi Kaynağı: https://www.instagram.com/p/Coe6SBzodd_/
+- Adana, Sedef Hotel, Bilgi Kaynağı: https://www.otelz.com/gecmisolsunturkiyem
+- Adıyaman, Yenimahalle Spor Salonu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Diyarbakır, Rekabet Kurumu Anadolu Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Denizli, Denizli Dini Yüksek İhtisas Merkezi , Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Diyarbakır, Halk Eğitim Merkezi Müdürlüğü, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Adıyaman, Çok Amaçlı Spor Salonu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Adana, Gündoğdu Koleji, Bilgi Kaynağı: https://twitter.com/amofesor/status/1622607644832804865
+- Artvin, Artvin Belediyesi Marina Tatil Köyü Sosyal Tesisleri, Bilgi Kaynağı: https://twitter.com/artvinbeltr/status/1623044291667828747
+- Diyarbakır, Vali Gökhan Aydıner Mesleki ve Teknik Anadolu Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Adana, Sakıp Sabancı Spor Salonu , Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj//
+- Diyarbakır, Merkez Anadolu İmam Hatip Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Adana, Sakıp Sabancı Ortaokulu, Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj//
+- Adıyaman, Eğriçay Parkı, Bilgi Kaynağı: https://twitter.com/AdiyamanBelTR/status/1624014011250491393
+- Diyarbakır, Farabi Mesleki Teknik AL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Diyarbakır, Necip Aşkın Diyarbakır Anadolu Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Diyarbakır, Şehit Namık Tümer İlköğretim Okulu, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Diyarbakır, Kent Meydanı, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622625704750751744
+- Diyarbakır, Borsa İstanbul Fen Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622621969840590848
+- Diyarbakır, İbn-i Sina MTAL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Diyarbakır, Rekabet Kurumu Cumhuriyet Fen Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Diyarbakır, Diyarbakır Cemevi, Bilgi Kaynağı: https://twitter.com/turkdaimaileri/status/1622567979270516736?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Diyarbakır, İMKB 75. Yıl YİBO, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Diyarbakır, Ziya Gökalp AL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622331301511169
+- Diyarbakır, Şehit Halit Gülser Kız Anadolu İmam Hatip Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Hatay, Yeni Hatay Stadyumu, Bilgi Kaynağı: https://twitter.com/AFADBaskanlik/status/1623657470278225921?lang=en
+- Gaziantep, Çiçek Plaza Düğün Salonu, Bilgi Kaynağı: https://instagram.com/stories/cicekplazagaziantep/3032241723521749525?utm_source=ig_story_item_share&igshid=NTdlMDg3MTY=
+- Eskişehir, Eskişehir Dini İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Diyarbakır, TOBB İlkokulu, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Gaziantep, ASKON Gaziantep Şubesi, Bilgi Kaynağı: https://twitter.com/orhanaydin/status/1622517195937923075?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Gaziantep, Panaroma Müzesi, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Diyarbakır, Seyrantepe Antrenman Salonu, Bilgi Kaynağı: https://twitter.com/dbakirvalilik/status/1622635300794077186
+- Erzurum, Ömer Nasuhi Bilmen Dini Yüksek İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Gaziantep, Nesibe Aydın Kampüsü, Bilgi Kaynağı: https://twitter.com/nesibeaydin/status/1622517062126936064?s=46&t=Ugb531WRI6HRdIIJZZj-TQ
+- Gaziantep, Koşuyolu, Bilgi Kaynağı: https://twitter.com/turkdaimaileri/status/1622567979270516736?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Hatay, Dörtyol Necip Fazıl Ortaokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Diyarbakır, Bahçeşehir Koleji Kampüsü, Bilgi Kaynağı: https://twitter.com/bahcesehir_k12/status/1624111945786789888
+- Gaziantep, Gazikent Yüzme Havuzu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Diyarbakır, Şehitlik Köşkler Gençlik Merkezi Çok Amaçlı Salon, Bilgi Kaynağı: https://twitter.com/dbakirvalilik/status/1622635300794077186
+- Hatay, Dörtyol Kuzuculu Ortaokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Gaziantep, Uğur Okulları Gaziantep Kampüsü, Bilgi Kaynağı: https://www.instagram.com/p/CoTp-OFqsSy/?igshid=NTdlMDg3MTY=
+- Gaziantep, Goap, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Gaziantep, Kuzeyşehir Spor Salonu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Diyarbakır, Türk Telekom MTAL Güney Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Diyarbakır, Mehmet Akif Ersoy AİHL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Elazığ, Harput Dini İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Hatay, Dörtyol Makbule Hanım Anaokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Diyarbakır, 500 Evler MTAL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Diyarbakır, Evliya Çelebi Ortaokulu, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Diyarbakır, Divan Hotel Diyarbakır, Bilgi Kaynağı: https://www.instagram.com/p/CocCDmzt_CI/?igshid=OTRmMjhlYjM=
+- Diyarbakır, Şehit Ömer Halis Demir AİHL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Gaziantep, Onat Kutlar, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Gaziantep, Talat Özkarslı Spor Salonu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Gaziantep, İncilikaya Spor Salonu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Gaziantep, Karakedi Saklı Bahçe, Bilgi Kaynağı: https://www.instagram.com/reel/CoU7UwfKCtE/?igshid=NTdlMDg3MTY=
+- Diyarbakır, Yenişehir Şehitlik MTAL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Hatay, Altınözü Gençlik Merkezi, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Diyarbakır, Ali Emiri Anadolu Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Diyarbakır, Şehitlik Köşkler Spor Salonu, Bilgi Kaynağı: https://twitter.com/dbakirvalilik/status/1622635300794077186
+- Hatay, Dörtyol Karakese İlkokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Diyarbakır, Seyrantepe Büyük Salon, Bilgi Kaynağı: https://twitter.com/dbakirvalilik/status/1622635300794077186
+- Gaziantep, Hasan Doğan Spor Kompleksi, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Diyarbakır, Eren Şahin Eronat MTAL, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Hatay, Dörtyol Çaylı Barbaros İlkokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Prof. Muammer Aksoy Caddesi, Bilgi Kaynağı: https://www.afad.gov.tr/antakya-ve-iskenderunda-cadir-kentler-olusturuldu-merkezicerik
+- Diyarbakır, TED Diyarbakır Koleji, Bilgi Kaynağı: https://twitter.com/tedbandirma/status/1623744137156521985
+- Hatay, Merkez Cimnastik Spor Salonu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Hatay, Dörtyol Erdi 2 Kapalı Halısaha, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Gaziantep, 8 Şubat Yüzme Havuzu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Gaziantep, Gaziler Spor Salonu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Hatay, TED Hatay Koleji, Bilgi Kaynağı: https://twitter.com/tedbandirma/status/1623744137156521985
+- Hatay, Dörtyol Şehit Ayhan Say ÇPL Ana Binası, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Diyarbakır, Muhammet Yurtoğlu Mesleki ve Teknik Anadolu Lisesi, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1622622661649080322
+- Gaziantep, Şehitkamil Belediyesi Beykent Spor Salonu, Bilgi Kaynağı: https://twitter.com/sehitkamilbel/status/1622637257189470210?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Diyarbakır, Park 75, Bilgi Kaynağı: https://twitter.com/diyarbakirbld/status/1624472195983458312
+- Hatay, Dörtyol Berat Kapalı Halısaha, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol Öğretmenevi ASO, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol Recep Atakaş Mesleki Teknik Anadolu Lisesi, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Diyarbakır, Şehitlik Köşkler Çok Amaçlı Salon, Bilgi Kaynağı: https://twitter.com/dbakirvalilik/status/1622635300794077186
+- Hatay, Dörtyol Şehit Ayhan Kıymacı İlkokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol Yeniyurt Ortaokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Gaziantep, Ulaş Spor Salonu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Hatay, Dörtyol İlk Adım Anaokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Gaziantep, Yeditepe Yüzme Havuzu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Gaziantep, Müzeyyen Erkul Bilim ve Sanat Merkezi, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Hatay, Dörtyol Ocaklı Anaokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol Yunus Emre Ortaokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol Yeşilköy 19 Aralık Ortaokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol Gazi İlkokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol Hacı Ahmet İlhan İlkokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Gaziantep, Perilikaya Spor Salonu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Gaziantep, Kamil Ocak Yüzme Havuzu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Gaziantep, Beykent Spor Salonu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Hatay, Dörtyol Atatürk Ortaokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol Otogar Girişi Pazar Yeri, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Reyhanlı Gençlik Merkezi, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Hatay, Dörtyol Konaklı İlkokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol Fen Lisesi, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Gaziantep, M. Vehbi Dinçerler Spor Salonu, Bilgi Kaynağı: https://twitter.com/fatmasahin/status/1622499495853322242?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Hatay, Bahçeşehir Koleji İskenderun, Bilgi Kaynağı: https://twitter.com/bahcesehir_k12/status/1624111945786789888
+- Hatay, Merkez Spor Salonu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Gaziantep, Kalyoncu Spor Salonu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Gaziantep, Nizip Stadı, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Hatay, Dörtyol Süleyman Demirel Anadolu Lisesi, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol İlk Kurşun İlkokulu, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, TOKİ Spor Salonu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Hatay, Dörtyol İlçe Jandarma Komutanlığı Bahçesi, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Dörtyol İlçe Emniyet Müdürlüğü Bahçesi, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Hatay, Atatürk Parkı, Bilgi Kaynağı: https://bjk.com.tr/tr/haber/85631/kulubumuz-depremzede-vatandaslarimiz-icin-cadir-kentler-kurdu.html
+- Kahramanmaraş, Saim Çotur Spor Salonu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Konya, Fevzi Fatma Demirpolat Kız Kur'an Kursu, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Kahramanmaraş, Hanefi Mahçiçek Stadyumu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Konya, Fahrunnisa Kız Kur'an Kursu, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Kahramanmaraş, Mevcut Konteynerkent Yanı, Bilgi Kaynağı: https://twitter.com/buyuksehirkm/status/1623260956162760707
+- Kilis, Beşevler 2500 Kişilik Spor Salonu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Elbistan Gençlik Merkezi, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Arapgir Belediyesi, Bilgi Kaynağı: https://twitter.com/tcmalatyav/status/1622462732195835904?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Konya, Esader Valide Sultan Erkek Kur'an Kursu, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Kahramanmaraş, Sütçü İmam Üniversitesi Karacasu Kampüsü , Bilgi Kaynağı: https://twitter.com/buyuksehirkm/status/1623260956162760707
+- Kahramanmaraş, Kafum, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Kocaeli, Kocaeli Dini Yüksek İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Kahramanmaraş, Göksun Yantepe, Bilgi Kaynağı: https://twitter.com/buyuksehirkm/status/1623260956162760707
+- Kahramanmaraş, Merkez Konteynerkent, Bilgi Kaynağı: https://twitter.com/ihhgenc/status/1622650765641646091/photo/1
+- Kocaeli, La Flora House Hotel, Bilgi Kaynağı: https://www.instagram.com/stories/lotusmeat/3033074465344709007/
+- Osmaniye, OKÜ Genç Ofis ve Otağ Çadırı, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Kahramanmaraş, Hobi Bahçesi, Bilgi Kaynağı: https://twitter.com/buyuksehirkm/status/1623260956162760707
+- Osmaniye, Osmaniye Olimpik Havuz, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Konya, Ashabı Suffe Erkek Kur'an Kursu, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Malatya, Meyvecilik Araştırma Enstitüsü, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Malatya, Akçadağ Şehit Alper Güde Teknik Lise ve Çok Programlı Lise, Bilgi Kaynağı: https://twitter.com/tcmalatyav/status/1622462732195835904?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Malatya, Özalper Semt Konağı, Bilgi Kaynağı: https://twitter.com/selahattingrkn/status/1622427802090835968?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Malatya, Doğanyol Lisesi, Bilgi Kaynağı: https://twitter.com/tcmalatyav/status/1622462732195835904?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Kilis, Söğütlüdere Semt Sahası, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, Yeniyurt Mahallesi, Bilgi Kaynağı: https://twitter.com/buyuksehirkm/status/1623260956162760707
+- Konya, Mirel Hotel, Bilgi Kaynağı: http://mirelhotel.com/tr/index.html
+- İzmir, İzmir Tire Dini İhtisas Merkezi , Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Malatya, Alacakapı Mahallesi, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Malatya, Bostanbaşı Muhtarlığı, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Malatya, Malatya Nikah Sarayı, Bilgi Kaynağı: https://twitter.com/selahattingrkn/status/1622422476280954882?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Malatya, Fuar Alanı, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Şanlıurfa, Bozova Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622444884618616834?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Malatya, Malatya Eğitim ve Araştırma Hastanesi, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Osmaniye, Osmaniye Çok Amaçlı Spor Salonu, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Kilis, Kilis Gençlik Merkezi, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Şanlıurfa, 11 Nisan Kapalı Spor Salonu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Şanlıurfa, Bahçeşehir Koleji Şanlıurfa Kampüsü, Bilgi Kaynağı: https://twitter.com/bahcesehir_k12/status/1624111945786789888
+- Kahramanmaraş, Atatürk Parkı, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Şanlıurfa, Ahmet Yesevi Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622444884618616834?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Kahramanmaraş, Elbistan Devlet Hastanesi Batısı , Bilgi Kaynağı: https://twitter.com/buyuksehirkm/status/1623260956162760707
+- Malatya, Malatya Kuluncak İlçe Milli Eğitim Müdürlüğü, Bilgi Kaynağı: https://twitter.com/tcmalatyav/status/1622462732195835904?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Malatya, 2. OSB Cami, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Şanlıurfa, Birecik Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622444884618616834?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Malatya, Hürriyet Parkı, Bilgi Kaynağı: https://twitter.com/selahattingrkn/status/1622427802090835968?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Malatya, Battalgazi Belediyesi, Bilgi Kaynağı: https://twitter.com/tcmalatyav/status/1622462732195835904?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Konya, Ereğli Erkek Yurdu, Bilgi Kaynağı: https://www.kykyurtlar.com/eregli-erkek-yurdu-54768-kyk-yurdu/
+- Osmaniye, Osmaniye Kız Yurdu, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Samsun, Aşıkkutlu Dini İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Kilis, Yüzme Havuzu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Trabzon, Trabzon Dini Yüksek İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Malatya, Yeşilyurt Merkez, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Osmaniye, Osmaniye Tosyalı Spor Salonu, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Şanlıurfa, Rabia Meydanı, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622478014129782784?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Malatya, Doğu Garajı, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Malatya, Kongre Kültür Merkezi Bahçesi, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Şanlıurfa, Birecik Spor Salonu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Kahramanmaraş, Türkoğlu Stadı, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Van, Van Abdulhakim Arvasi Dini İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Şanlıurfa, Akçakale Spor Salonu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Şanlıurfa, Halfeti Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622444884618616834?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Şanlıurfa, Yenice Kapalı Spor Salonu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Şanlıurfa, Kitap Otağı Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622478014129782784?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Osmaniye, Kadirli Karma Yurt Müdürlüğü, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Kahramanmaraş, Tarımsal Araştırma, Bilgi Kaynağı: https://twitter.com/buyuksehirkm/status/1623260956162760707
+- Kahramanmaraş, Girne Caddesi Çadır Kent, Bilgi Kaynağı: https://bjk.com.tr/tr/haber/85631/kulubumuz-depremzede-vatandaslarimiz-icin-cadir-kentler-kurdu.html
+- Kahramanmaraş, Doğukent Futbol Sahası, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Kahramanmaraş, TCDD Lojistik Merkez Alanı, Bilgi Kaynağı: https://twitter.com/buyuksehirkm/status/1623260956162760707
+- Şanlıurfa, Viranşehir Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622478014129782784?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Şanlıurfa, Toki Batıkent Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622478014129782784?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Şanlıurfa, İbrahim Halil Yıldırım Parkı, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622478014129782784?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Kütahya, Kütahya Dini İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Malatya, Malatya Otogarı (MAŞTİ), Bilgi Kaynağı: https://twitter.com/selahattingrkn/status/1622422476280954882?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Kahramanmaraş, Pazarcık Atatürk Parkı, Bilgi Kaynağı: https://twitter.com/buyuksehirkm/status/1623260956162760707
+- Kastamonu, Kastamonu Dini İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Malatya, Bostanbaşı Mahallesi, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Malatya, Doğa Cadde, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Kilis, Kilis Kız Yurdu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Hatay, Dörtyol Belediyesi Karahasanpaşa Sosyal Tesisi, Bilgi Kaynağı: https://www.instagram.com/p/CoXjqwZID4_/
+- Rize, Rize Müftü Yusuf Karali Dini Yüksek İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Manisa, Manisa Dini İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Şanlıurfa, Süleymaniye Seyit Hışırlı Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622478014129782784?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Osmaniye, Kayıboyu Kız Yurdu, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Kahramanmaraş, Batıpark, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Malatya, Selçuk Ecza Deposu, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Şanlıurfa, Karaköprü Kapalı Spor Salonu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Şanlıurfa, Şehitlik İlkokulu, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622478014129782784?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Kahramanmaraş, Afşin Stadı, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Şanlıurfa, 11 Nisan Olimpik Yüzme Havuzu, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Osmaniye, Düziçi Spor Salonu ve Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Kilis, Bilal Habeşi Erkek Yurdu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Malatya, Fırat Gençlik Merkezi, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Şanlıurfa, Hilvan Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622444884618616834?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Şanlıurfa, Ceylanpınar Büyükşehir Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622444884618616834?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Osmaniye, Osmaniye İl Müdürlüğü Ana Bina, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Malatya, Emekliler Parkı, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Konya, Konya Dini İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Şanlıurfa, Hayati Harrani Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622444884618616834?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Malatya, Darende Hükümet Konağı, Bilgi Kaynağı: https://twitter.com/selahattingrkn/status/1622427802090835968?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Yozgat, Yozgat Şehit İbrahim Yılmaz Dini İhtisas Tesisi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Malatya, Salköprü Semt Konağı, Bilgi Kaynağı: https://twitter.com/selahattingrkn/status/1622427802090835968?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Şanlıurfa, Karaköprü Gençlik Merkezi, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Malatya, Akçadağ Anadolu Lisesi, Bilgi Kaynağı: https://twitter.com/tcmalatyav/status/1622462732195835904?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Ordu, Ordu Dini İhtisas Merkezi , Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Malatya, Şeker Fabrikası, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Osmaniye, Cevdetiye Spor Eğitim Merkezi, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Konya, İçeriçumra Erkek Kur'an Kursu, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Konya, Seyyid Harun Veli Kız Kur'an Kursu, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Kilis, 7 Aralık Semt Sahası, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Şanlıurfa, Hilvan Spor Salonu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Şanlıurfa, Sırrın Cami, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622478014129782784?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Şanlıurfa, Urfa Kısas Cemevi, Bilgi Kaynağı: https://twitter.com/turkdaimaileri/status/1622567979270516736?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Malatya, Akçadağ Belediyesi, Bilgi Kaynağı: https://twitter.com/tcmalatyav/status/1622462732195835904?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Osmaniye, Kadirli Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Malatya, Dedekorkut Sosyal Tesisleri, Bilgi Kaynağı: https://twitter.com/selahattingrkn/status/1622427802090835968?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Osmaniye, Osmaniye Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Şanlıurfa, Sabancı Mesleki Ve Teknik Anadolu Lisesi, Bilgi Kaynağı: https://www.instagram.com/p/Cocu6MXtLCj/
+- Şanlıurfa, Suruç Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622478014129782784?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Şanlıurfa, Bahçelievler Gençlik Merkezi, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Malatya, Battalgazi Sosyal Yaşam Merkezi Çöşnük, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Kahramanmaraş, Elbistan Spor Salonu, Bilgi Kaynağı: https://www.instagram.com/p/CocFO24siYT/?igshid=NTdlMDg3MTY=
+- Şanlıurfa, İpekyol Gençlik Merkezi, Bilgi Kaynağı: https://gsb.gov.tr/haber-detay.html/968
+- Kahramanmaraş, Nurhak Kullar Eski Belediye Yanı , Bilgi Kaynağı: https://twitter.com/buyuksehirkm/status/1623260956162760707
+- Tekirdağ, Tekirdağ Dini İhtisas Merkezi, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Osmaniye, Karacaoğlan Erkek Yurdu, Bilgi Kaynağı: https://twitter.com/kasapoglu/status/1622646258308349954
+- Malatya, Millet Bahçesi, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Malatya, Kernek Meydanı, Bilgi Kaynağı: https://twitter.com/TCMalatyaV/status/1624446541623615493/photo/2
+- Şanlıurfa, Ayşe Hümeyra Anadolu İmam Hatip Lisesi, Bilgi Kaynağı: http://www.karakopru.gov.tr/deprem-nedeniyle-vatandaslarimizin-ilcemizde-kullanabilecekleri-gecici-barinma-alanlarimiz
+- Şanlıurfa, TED Şanlıurfa Koleji
+, Bilgi Kaynağı: https://twitter.com/tedbandirma/status/1623744137156521985
+- Şanlıurfa, Siverek Gençlik Merkezi, Bilgi Kaynağı: https://twitter.com/sanliurfabld/status/1622478014129782784?s=46&t=BPAhJVUaSEp-FhJyk7mw2A
+- Mardin, Behçet Hattapoğlu Erkek Kur'an Kursu, Bilgi Kaynağı: https://twitter.com/BabalaTv/status/1624065729254367234/photo/2
+- Şanlıurfa, Urfa Said Nursi Anadolu İmam Hatip Lisesi, Bilgi Kaynağı: http://www.karakopru.gov.tr/deprem-nedeniyle-vatandaslarimizin-ilcemizde-kullanabilecekleri-gecici-barinma-alanlarimiz

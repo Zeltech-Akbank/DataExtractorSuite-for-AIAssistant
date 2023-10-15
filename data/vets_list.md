@@ -1,0 +1,21 @@
+- Asil Veteriner Kliniği Gaziantep, Tel: 0542 369 37 40, Adres: Batıkent Mahallesi Adnan İnancı Caddesi Batmazoğlu A blok No 6:C, Batıkent, 27560 Şehitkamil/Gaziantep
+- Heypati Veteriner Kliniği, Tel: 0533 193 72 84, Adres: Kurtuluş Mahallesi Ziyapaşa Bulvarı Nakipoğlu Apt Altı No: 9 Seyhan / Adana
+- DEMAR VETERİNER KLİNİĞİ, Tel: 0533 656 82 20, Adres: Kurtuluş, Befi Apartmanı, Şinasi Efendi Cd. No:7 D:Zemin Kat, 01130 Seyhan/Adana
+- PetLife Veteriner Kliniği, Tel: 0536 027 57 97, Adres: Mahfesığmaz, Damar Arıkoğlu Blv. 3 A, 01170 Çukurova/Adana
+- Petcare Veteriner Kliniği, Tel: 0552 877 28 84, Adres: Yildizevler, Rabindranath Tagore Cd. No: 15/B,
+- Gen Veteriner Kliniği, Tel: 0533 495 23 29, Adres: Fırat, Asur Yapı Sitesi, Nazım Hikmet Cd. 46 CA, 21070 Kayapınar/Diyarbakır
+- Şişli Belediyesi Veteriner İşleri Müdürlüğü Çadırı, Tel:  , Adres: General Şükrü Kanatlı, Cemali Cd. No:1, 31030 Antakya/Hatay
+- DR. PATİ VETERİNER KLİNİĞİ, Tel: 0543 719 05 32, Adres: Atakent Mah. 6208. Sokak No:1 İç Kapı No:1, Şenevler, 63300 Karaköprü/Şanlıurfa
+- Kare Veteriner Kliniği, Tel: 0541 219 92 82, Adres: Diclekent, 247. Sk. Welat - Erdem Sitesi D:No: 1/A, 21300 Kayapınar/Diyarbakır
+- PetsHome Veteriner Kliniği, Tel: 0530 839 67 83 , Adres: Mezopotamya, 608. Sk 14/B, 21070 Kayapınar/Diyarbakır
+- PETKİNG VETERİNER KLİNİĞİ DİYARBAKIR 7/24 ACİL, Tel: 0542 423 88 98, Adres: Mezopotamya mahallesi Yılmaz Güney caddesi no 31/AB çeysa 4 yapı altı, 21070 Kayapınar/Diyarbakır
+- Pet Life Veteriner Kliniği, Tel: 0553 790 24 02, Adres: Diclekent Mahallesi, Diclekent Bulvar, No: 133 AB, Welat Centro Plaza, 21070 Kayapinar, Diyarbakir
+- ALİ BAYAZIT VETERİNER KLİNİĞİ, Tel: 0535 775 57 33, Adres: Fatih, Aksaray Apartmanı, 30004. Sk. No:1 A, 33200 Mezitli/Mersin
+- Miya Hav Pet Hotel, Tel: 0532 326 07 33, Adres: Küçükkızılhisar, Küme evler no25, Gedikardı, 27000 Şahinbey/Gaziantep
+- Survet Veteriner Kliniği, Tel: 0532 776 90 32
+0414 315 93 11, Adres: Hamidiye Mahallesi Emniyet Caddesi Behçet Arabi Caddesi No: 14/A 63300 Haliliye/Şanlıurfa
+- Kuki Veteriner Kliniği, Tel: 0312 468 37 46
+0312 427 03 86, Adres: Güvenevler, Mesnevi Sokağı No:42
+- Vatsilla Pet Veteriner Kliniği, Tel: 0534 443 97 21, Adres: İnaloğlu caddesi karaamid apartmanı altı no:22/A, 21100 Yenişehir/Diyarbakır
+- Pati-Ka Veteriner Kliniği, Tel: 0538 552 51 71, Adres: Fırat, 596. Sokak No:10, 21070 TED Koleji Karşısı
+- Peethoven Veteriner Kliniği, Tel: 0507 426 71 21, Adres: Viranşehir, 34311. Sk. No:10, 33340 Mezitli/Mersin
